@@ -6,5 +6,5 @@ Este es un pequeño repositorio de relatos cortos de José Castiñeira. La final
 
 En consecuencia este espacio se compone de dos tipos de contenido los cuales iré incluyendo en alguna de las siguientes secciones:
 
-- Relatos.
-- Metaliteratura.
+- [Relatos.](relatos.md)
+- [Metaliteratura.](metaliteratura.md)
