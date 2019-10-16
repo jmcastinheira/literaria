@@ -21,7 +21,7 @@ cuidado Felipe, no soy un mentecato.
 
 Dı́ una patada a un adoquı́n de la calle. En algún momento la gente empezó a correr.
 
---¿Cuánto te dan por el acero?\\
+--¿Cuánto te dan por el acero?\  
 --No sé, unas naranjas.
 
 Alguien gritó ¡Bomba! ¡Bomba! Era un juego que habı́a... En ese instante Laura y su pequeño
@@ -39,7 +39,7 @@ el puño. Juan no contestó. ¡Hazlo mascamierdas! O te fusilamos.
 Entonces volé. Apenas pude ver la bomba cayendo y los aviones. Crucé toda la calle volando.
 Todavı́a tengo metralla cerca del pulmón.
 
---¿Y qué pasó con el corazón, abuelo?\\
+--¿Y qué pasó con el corazón, abuelo?\  
 --¿El de Juan? [...] No sé, supongo que prendió.
 
 *José Castinneira*
