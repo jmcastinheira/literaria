@@ -91,10 +91,12 @@ Molly. Los perros tampoco. Pies que se arrastran sobre la tierra.
 Algún político dijo una vez: «No crucificaréis a la Humanidad sobre una cruz de oro». Pero
 eso fue exactamente lo que pasó.
 
+Notas
 ----
 
 [^1]:«La empresa, el pueblo, la mina; todo es lo mismo y uno, compañeros. Vivimos en casas que no son nuestras,
 compramos en sus tiendas, bebemos en sus bares y hasta nos protege la seguridad de la empresa. Todo es de St
 Joseph Company. Esta jaula de oro y hollín que nos detiene y alimenta. Compañeros, dependemos de ellos, pero
 ellos dependen de nostros. No dejemos que se lo lleven. Venden la mina, sí. ¡Pero aquí se queda todo!»  
+
 [^2]:Está canción en se puede oír en el minuto 4:30 [https://youtu.be/qpknc0aqzns](https://youtu.be/qpknc0aqzns)
