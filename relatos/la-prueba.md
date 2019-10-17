@@ -10,9 +10,9 @@ Queda poco. Sobre la mesa libros de matemáticas y poesía. Yeats, Russell y alg
 
 Por la ventana el gris se va aclarando al poco, en un arrebato se convierte en luz y la luz en dı́a. Si decides ir no podrás volver a intentarlo. Ya te has acostumbrado a luchar, te gusta aprender, disfrutas de soñar a medias y de vivir durmiendo. Si fracasas volverás a la nada y a la muerte. No habrá más remedios.
 
-Pero Manuel está decidido, sabe muy bien que hacer. Se levanta, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Ya no hay tiempo. Rebusca entre la ropa y corre; piernas, pantalones, un cinturón y la cremallera.
+Pero Manuel está decidido, sabe muy bien que hacer. Se levanta, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Pero ya no hay tiempo. Corre. Rebusca entre la ropa; piernas y pantalones. Deja de dudar, de esperar, puedes hacerlo. 
 
-Manuel está de pie mirando el cierre, justo antes de salir. No se ha olvidado de las cajas ni de los bolígrafos. Suspira y adelanta tranquilo la mano.
+Justo antes de salir parado frente a la salida. No olvidar las cajas, libros, ni bolígrafos. Ya no tiene sentido volver atrás, con todo lo que hemos invertido. Suspira, relájate Manuel. Hoy todo acabará por fin.
 
 ¿Notais el frı́o en el pomo de la puerta?
 
