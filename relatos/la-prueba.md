@@ -10,10 +10,10 @@ Queda poco. Sobre la mesa libros de matemáticas y poesía. Yeats, Russell y alg
 
 Por la ventana el gris se va aclarando al poco, en un arrebato se convierte en luz y la luz en dı́a. Si decides ir no podrás volver a intentarlo. Ya te has acostumbrado a luchar, te gusta aprender, disfrutas de soñar a medias y de vivir durmiendo. Si fracasas volverás a la nada y a la muerte. No habrá más remedios.
 
-Pero Manuel está decidido, sabe muy bien que hacer. Se levanta, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Pero ya no hay tiempo. Corre. Rebusca entre la ropa; piernas y pantalones. Deja de dudar, de esperar, puedes hacerlo. 
+Levántate, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Pero ya no hay tiempo. Corre. Rebusca entre la ropa; piernas, pantalones y sal afuera. En la calle esta lluvia fina que cubre las aceras. Ruídos de cristales y esa mujer corriendo. Hay un mendigo durmiendo en el portal. Si sigues verás gente de traje y corbata con maletines y muchas llaves en los bolsillos. Muy pocos sonríen.
 
-Justo antes de salir parado frente a la salida. No olvidar las cajas, libros, ni bolígrafos. Ya no tiene sentido volver atrás, con todo lo que hemos invertido. Suspira, relájate Manuel. Hoy todo acabará por fin.
+Llegaré al Ministerio, cruzaré la entrada y esperaré un poco. He de llamar al hotel por si salgo tarde. No he olvidado el Lorazepam ni la botella de Whisky, habrá que celebralo en cualquier caso. Noto cierta ingravidez tensa en él estómago. Otros se conforman con quedarse detrás y matarse a medias. Pero ya he llegado.
 
-¿Notais el frı́o en el pomo de la puerta?
+¿Notais el frı́o del pomo de la puerta?
 
 *José Castiñeira*
