@@ -8,11 +8,7 @@ El viejo gitano habı́a hablado de la prueba. Aquella tarde, en la taberna, tod
 
 Queda poco. Sobre la mesa libros de matemáticas y poesía. Yeats, Russell y algunas tablas de ejercicios se confunden con cajas de Lorazepam. Hay un diario con notas, revistas y cientos de fotografías. Aquella figura delgada se va quedando en sombra. Como los párpados se cierran todo es negro y desde aquı́ tan solo un rumor de ideas se nos viene; que si será mejor no ir, si habrá que hacer, decir, o si habrá que callarse; nada es seguro. Manuel, despierta ¿En serio crees que tanto tiempo habrá valido la pena?
 
-Por la ventana el gris se va aclarando al poco, en un arrebato se convierte en luz y la luz en dı́a. Si decides ir no podrás volver a intentarlo. Ya te has acostumbrado a luchar, te gusta aprender, disfrutas de soñar a medias y de vivir durmiendo. Si fracasas volverás a la nada y a la ~~muerte~~. No habrá más remedios.
-
-Levántate, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Pero ya no hay tiempo. Corre. Rebusca entre la ropa; piernas, pantalones y sal afuera. 
-
-~~En la calle esta lluvia fina cubre las aceras. Ruídos de cristales y una mujer corriendo ¿Veis el mendigo durmiendo en el portal? Al seguir veremos gente de traje y de corbata. Solo uno sonríe después de todo. Llegaré al Ministerio, cruzaré la entrada y esperaré un poco. Llamaré al hotel por si salgo tarde. No he olvidado el Wiskey ni el Lorazepam, habrá que celebralo en cualquier caso. Noto cierta ingravidez tensa en él estómago~~. 
+Por la ventana el gris se va aclarando al poco, en un arrebato se convierte en luz y la luz en día. Si decides ir no podrás volver a intentarlo. Ya te has acostumbrado a luchar, te gusta aprender, disfrutas de soñar a medias y de vivir durmiendo. Si fracasas volverás a la nada sin remedio. Levántate, revisa con cuidado la última nota. Recoge las cajas. El ruido de una silla. Hay un goteo incesante como de lluvia o grifo abierto y algo que se cae. Pero ya no hay tiempo. Corre. Rebusca entre la ropa; piernas, pantalones y sal afuera.  
 
 Otros se conforman con quedarse detrás y matarse a medias. Pero yo ya he llegado ¿Notais el frı́o del pomo de la puerta?
 
