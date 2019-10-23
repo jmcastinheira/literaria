@@ -60,7 +60,7 @@ no sé qué dice\
 no sé quién reza. 
 
 
-## Por la franja de sol
+### Por la franja de sol
 
 Por la franja de sol\  
 camina una mujer desnuda\  
@@ -70,7 +70,7 @@ por el suelo\
 toda llena de luz. 
 
 
-## Vienes tarde a conocerme
+### Vienes tarde a conocerme
 
 Vienes tarde a conocerme\  
 aunque no quieras\  
@@ -86,7 +86,7 @@ qué cosas me enseñarás\
 con lo tarde que llegas. 
 
 
-## La lechuga es huerta, casa
+### La lechuga es huerta, casa
 
 La lechuga es huerta, casa,\  
 humedad verde de ceniza que se pierde\  
@@ -107,9 +107,7 @@ Enciendo la tele,\
 evito la cebolla para no llorar.
 
 
-
-
-## Ya sé que puede parecer extraño
+### Ya sé que puede parecer extraño
 
 Ya sé que puede parecer extraño,\  
 pero yo también estaba\  
@@ -182,7 +180,7 @@ la historia de los pueblos que beben la sal\
 de este mar Mediterráneo. 
 
 
-## Me levanté y sentí
+### Me levanté y sentí
 
 Me levanté y sentí\  
 mi cuerpo entero equilibrarse sobre estos pies\  
@@ -194,13 +192,13 @@ en esa quietud inerte de los sindicatos\
 entonces miré hacia la ventana. 
 
 
-## Un reflejo en la ventana
+### Un reflejo en la ventana
 
 Un reflejo en la ventana\  
 es alguien que ve llover. 
 
 
-## Haz	que el tren no pare hoy
+### Haz	que el tren no pare hoy
 
 Haz que el tren no pare hoy\  
 que siga recorriendo el verde tras la pantalla\  
@@ -213,7 +211,7 @@ Quizás mañana volvamos a nacer\
 acostumbrados a este respeto simple de la hierba. 
 
 
-## Traspasa tu rostro
+### Traspasa tu rostro
 
 Traspasa tu rostro\  
 en la ventana\  
@@ -287,7 +285,7 @@ por favor doctor ayúdeme\
 solo espero que no sea grave. 
 
 
-## Lunes lluvioso
+### Lunes lluvioso
 
 Aun siendo hoy casi un lunes lluvioso de diciembre [^1]\  
 no ha caído ni una sola lágrima.
@@ -299,7 +297,7 @@ que un lluvioso lunes de diciembre.
 [^1]: (Palma, 29 de enero de 2017)
 
 
-## Tinder
+### Tinder
 
 Hoy todos se conocen a base de piel\  
 y sexo\  
@@ -334,7 +332,7 @@ cuando tu cuerpo se deslice sobre el mío\
 volveremos a estar terriblemente solos.
 
 
-## Entonces reapareces
+### Entonces reapareces
 
 Entonces reapareces,\  
 y contigo viene\  
@@ -400,7 +398,7 @@ Piel suavidad\
 espalda. 
 
 
-## Cuando estés en Australia
+### Cuando estés en Australia
 
 Cuando estés en Australia;\  
 con la luna,\  
@@ -418,7 +416,7 @@ horizonte perpetuo\
 de todos mis caminos. 
 
 
-## Me despido de ti
+### Me despido de ti
 
 A saco de llorar me despido de ti\  
 porque te marchas.
@@ -465,7 +463,7 @@ por eso\
 hay tantas soledades en el mundo. 
 
 
-## Últimamente
+### Últimamente
 
 Últimamente mis dedos no funcionan.\  
 No artistean bien a la guitarra\  
@@ -559,7 +557,7 @@ y vuelta a empezar todo en otoño, verano,\
 invierno y primavera. 
 
 
-## Lejos
+### Lejos
 
 Lejos de ti está lo extraño.\  
 Hay tantas cosas que ver y descubrir.\  
@@ -585,7 +583,7 @@ Ahora estoy fuera.\
 Regresaré a casa cuando vuelvas. 
 
 
-## Desde aquí no puede verse el mar
+### Desde aquí no puede verse el mar
 
 Desde aquí no puede verse el mar\  
 todo es noche inundando el aire;
@@ -606,7 +604,7 @@ al final\
 la tierra. 
 
 
-## He imaginado este reencuentro
+### He imaginado este reencuentro
 
 He imaginado este reencuentro,\  
 que ahora imagino otra vez.
@@ -636,9 +634,6 @@ Explotará tu risa,\
 y será mi patria, mi hogar,\  
 mi vuelta a casa.
 
-
-
-
 ### Aquellos que disfrutan como zombis
 
 > A Lola
@@ -658,8 +653,6 @@ entre los coches;\
 si nos hacemos suaves a base de piel,\  
 si nos queremos casi como náufragos\  
 que se encuentran en la playa.
-
-
 
 
 ### Algo nuestro
@@ -700,7 +693,7 @@ yo rompo tus bolígrafos\
 tú aguantas los berrinches de mi jefe.
 
 
-## A veces, te retienes
+### A veces, te retienes
 
 A veces, te retienes\  
 en el baile,\  
@@ -714,9 +707,7 @@ repitiendo tu nombre como Eco,\
 repitiéndote, para que no te mueras.
 
 
-
-
-## Algunos árboles hablan por sus raíces
+### Algunos árboles hablan por sus raíces
 
 Algunos árboles hablan por sus raíces.
 
@@ -742,9 +733,7 @@ no tienen tiempo de ir enjoyados de sol ni jade
 pero no han sido ellos los culpables.
 
 
-
-
-## Me quedé con tu cuerpo
+### Me quedé con tu cuerpo
 
 Me quedé con tu cuerpo fuego y camino de piel hasta tu boca\  
 me quedé entre las sendas que dibuja el viento\  
@@ -766,9 +755,7 @@ volver\
 hacia ningún sitio.
 
 
-
-
-## Ahora que soy nómada
+### Ahora que soy nómada
 
 Ahora que soy nómada,\  
 ya sin musa;\  
@@ -813,17 +800,12 @@ y una canción.
 No te regalo más\  
 espero que haya sido suficiente.
 
-
-
-
-## Me acerco a este cristal
+### Me acerco a este cristal
 
 Me acerco a este cristal que dibuja\  
 nuestro aliento\  
 con una nube blanca\  
 donde escribo tu nombre.
-
-
 
 
 ## Libro IV
@@ -872,7 +854,7 @@ enseñadme a llorar,\
 nosotros no sabemos.
 
 
-## Antes de mí eran las polillas
+### Antes de mí eran las polillas
 
 Antes de mí eran las polillas\  
 las maté poco a poco, larva a larva.\  
@@ -898,7 +880,7 @@ aunque, por algún motivo,\
 solo tengo ganas de llorar.
 
 
-## En Palma llueve bruscamente
+### En Palma llueve bruscamente
 
 En Palma llueve bruscamente.\  
 Arrecia un vendaval de agua y de viento.\  
@@ -919,7 +901,7 @@ Gracias paisana,\
 que me traes mi tierra.
 
 
-## Hay quien no se arrepiente
+### Hay quien no se arrepiente
 
 Hay quien no se arrepiente de la mancha en el vestido,\  
 de los kilos de azúcar tomados a deshoras.
@@ -943,7 +925,7 @@ cómo saber qué gritos se han dado\
 por nuestras ausencias.
 
 
-## El desagüe de la ducha
+### El desagüe de la ducha
 
 De repente se atasca el desagüe de la ducha\  
 recuerdo que por un tiempo\  
@@ -972,8 +954,6 @@ no me molestó porque tenía sentido estar en casa.
 Pero ahora estoy desatascando está maldita tubería\  
 y es un adiós para siempre\  
 el que se va por el desagüe.
-
-
 
 
 ### Tesoros de biblioteca
@@ -1070,7 +1050,7 @@ Justo lo que pesa el alma.
 [^2]: (Palma 21 de febrero de 2017)
 
 
-## No
+### Cantos rodados
 
 No fue el *cloc cloc cloc* de los cantos rodados,\  
 ni el rumor del río.
@@ -1093,7 +1073,7 @@ Este miedo se repite como un salmo:
 
 
 
-## Volver
+### Volver
 
 Volver a ver la hierba verde,\  
 la hierba\  
@@ -1107,7 +1087,7 @@ verde la hierba.
 
 ## Libro V
 
-## Alguna vez fuimos nómadas
+### Alguna vez fuimos nómadas
 
 Alguna vez fuimos nómadas\  
 y el viento acompañaba nuestra casa\  
@@ -1125,7 +1105,7 @@ allá donde la hierba crece.
 
 
 
-## Nadie lo sabía
+### Nadie lo sabía
 
 Nadie lo sabía\  
 pero tu sombra sola\  
@@ -1154,7 +1134,7 @@ le hubieran quitado algo.
 
 
 
-## Contemplarán el tacto
+### Contemplarán el tacto
 
 Contemplarán el tacto suavemente\  
 despacio y detenido,\  
@@ -1177,7 +1157,7 @@ la soledad de tener distinto cuerpo.
 
 
 
-## ¡Ven!
+### ¡Ven!
 
 ¡Ven!\  
 Seremos hogar\  
@@ -1196,7 +1176,7 @@ tan solo este pan de abrazos compartidos.
 
 
 
-## Sal de la casa
+### Sal de la casa
 
 Sal de la casa y anda\  
 sigue el ritmo del viento,\  
@@ -1250,7 +1230,7 @@ con algo que nos falta.
 
 
 
-## Donde tú estás
+### Donde tú estás
 
 Donde tú estás\  
 está la vida;\  
@@ -1275,7 +1255,7 @@ nadie lo diría.
 
 
 
-## Ignorantes
+### Ignorantes
 
 Ignorantes de todo\  
 los humanos\  
@@ -1317,7 +1297,7 @@ soñándote,
 envidiándote… 
 
 
-## Poco a poco
+### Poco a poco
 
 Poco a poco avanza por la calle\  
 un sonido de pasos de madera
