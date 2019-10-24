@@ -13,13 +13,13 @@
 Esta obra ha sido publicada en su primera edición por la Biblioteca Virtual ACEB. 
 Se puede obtener una copia en distintos formatos o quizás una versión 
 más reciente en la web de la asociación:
-(http://www.bibliotecavirtualaceb.org/alguna-vez/)[http://www.bibliotecavirtualaceb.org/alguna-vez/]. 
+[http://www.bibliotecavirtualaceb.org/alguna-vez/](http://www.bibliotecavirtualaceb.org/alguna-vez/). 
 
 ©José Castiñeira: En la medida de lo posible, José Castiñeira hace devolución al dominio
 público de la obra <<Alguna vez>> conservando sus derechos
 morales, incluídos el de autoría e integridad de la obra. Para más
 información sobre qué puedes hacer con esta obra visita el siguiente
-enlace: (https://creativecommons.org/publicdomain/zero/1.0/)[https://creativecommons.org/publicdomain/zero/1.0/]
+enlace: [https://creativecommons.org/publicdomain/zero/1.0/](https://creativecommons.org/publicdomain/zero/1.0/)
 
 ## Libro I
 
