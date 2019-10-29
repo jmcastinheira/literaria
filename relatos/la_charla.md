@@ -1,6 +1,6 @@
 # La charla.
 
----¿Quién está ahí?.--- Mierda. Piensa; estuviste con Juan charlando, mira que es brasas. No bebiste nada, bueno un poco. No se lo va a creer. Arréglate la camisa. Recto. No desvaríes. ---Soy yo.--- Despacio, asomate a la puerta. No despiertes a los demás. Habla bajo.... Pero no muy bajo. Ella estará leyendo... Qué pesada es.
+---¿Quién está ahí?.--- Mierda. Piensa; estuviste con Juan charlando, mira que es brasas. No bebiste nada, bueno un poco. No se lo va a creer. Arréglate la camisa. Recto. No desvaríes. ---Soy yo.--- Despacio, asomate por la puerta. No despiertes a los demás. Habla bajo.... Pero no muy bajo. Ella estará leyendo... Qué pesada es.
 
 --Dijimos a la una; llegas tarde.  
 --Pensé que ya te habrías acostado; estuve charlando con Juan y entre pitos y flautas se me pasó la hora, lo siento.  
@@ -11,22 +11,40 @@
 
 Joer, siempre me la encuentro al llegar. Qué cabrón el Juan. Un poco de fruta. La nevera vacía. Pues sí no le cae bien Marina que le den. Agua y melocotón. Lo que hay. 
 
--- *Luego vuelves y te quedas con las niñas que yo iré a misa de once.*  
+-- *Luego vuelves y te quedas con Anita que yo iré a misa de once.*  
 -- *Vaale.*  
 
-Nada te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pondré la tele a ver; mejor no. Venga te sientas y terminas rápido. No entiendo porqué a Juan no le cae bien Marina.
+Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pondré la tele a ver; mejor no. Venga, te sientas y terminas rápido. No entiendo porqué a Juan no le cae bien Marina.
 
 --¿Y ya has pensado qué quieres estudiar?  
 --¿Qué quiero estudiar yo o si quiero estudiar lo que tú quieres que estudie?  
 --Hombre, no seas así.  
---¿De verdad quieres hablar de esto ahora? ¿Cómo quieres que sea? Si te digo que quiero estudiar filosofía me dirás que eso no tiene salidas, si te digo que quiero estudiar bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
+--¿De verdad quieres hablar de esto ahora? ¿Cómo quieres que sea? Si te digo que quiero estudiar filosofía me dirás que eso no tiene salida, si te digo que quiero estudiar bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
 --¡Cómo que **dónde** vas a estudiar?  
---Pues no lo sé, a Marina le han dado una beca para el Conservatorio Real de Bruselas.
+--Pues no lo sé, a Marina le han dado una beca para el Conservatorio Real de Bruselas.  
 --¿Y eso qué significa! ¿No serás tan tonto de irte con ella?  
 --Hombre, pues no sé, es mi novia.  
---¡Ah muy bien! ¿Y de qué vas a vivir?  
---La abuela me ayudará y luego me buscaré un curro de cualquier cosa.  
+--¡Ah muy bien! Muy bien ¿Y de qué vas a vivir?  
+--Seguro que la abuela me ayuda y luego ya me buscaré un curro de cualquier cosa.  
 --Ya, ya... Bueno, si crees que eso te hace feliz...  
 --Claro que me hace feliz, Marina es la única persona que me entiende.  
 --Esa chica no te quiere, ya te lo digo yo.  
---¡Y tú qué sabrás, si a ti no te quiere nadie?  
+--¡Y tú qué sabrás, si a ti no te quiere nadie!  
+--No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra y te deje, o cuándo te aburras tú ¿A dónde vas a ir? ¿Eh?  
+--¡A cualquier sitio menos a esta casa!
+
+Me voy. Portazo, me he pasado. Que le den. Me voy ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde está el puto portátil? Dinero. Ni un puto duro. Espera que ahora vuelve.
+
+--Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?
+--Sí, claro que me voy.
+--Llévate algo de comer.
+--No quiero nada.
+--¿Y dónde vas a dormir?
+--En casa de la abuela.
+--¿Porqué no te esperas a mañana?
+--Porque me voy ya... ¿Dónde está mi portátil?
+--Lo debió coger Anita para el trabajo de ciencias.
+-- Joer.
+
+
+

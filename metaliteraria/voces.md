@@ -2,14 +2,10 @@
 
 Recopilo voces para algún relato.
 
-Fantasía
-  : En plan se le va la olla.
-  : dos
+- Fantasías: En plan "caprichos"
 
+## Constelación adolescente.
 
-## Constelación
-
-- Adolescencia
 - Inocencia
 - amor
 - casa
@@ -28,4 +24,15 @@ Fantasía
   - musicalmente
 - futura frustración de expectativas
 - permitir travesuras
+- 
+
+## Constelación adulto.
+
+- Conservador
+- religión
+- responsabilidades
+- realidad
+- pesimismo
+- desconfiados
+- manipulador
 - 
