@@ -17,9 +17,9 @@ Joer, siempre me la encuentro al llegar. Qué cabrón el Juan. Un poco de fruta.
 Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pondré la tele a ver; mejor no. Venga, te sientas y terminas rápido. No entiendo porqué a Juan no le cae bien Marina.
 
 --¿Y ya has pensado qué quieres estudiar?  
---¿Qué quiero estudiar yo o si quiero estudiar lo que tú quieres que estudie?  
+--¿Qué quiero estudiar yo o si quiero estudiar lo que tú me mandes?  
 --Hombre, no seas así.  
---¿De verdad vamos a hablar de esto ahora? Si te digo que voy a hacer filosofía me dirás que eso no tiene salida, si te digo bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
+--¿De verdad vamos a hablar de esto ahora? Si te digo que voy a hacer filosofía me dirás que eso no tiene salidas, si te digo que bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
 --¡Cómo que **dónde?**  
 --Pues no lo sé, a Marina le han dado una beca para el Conservatorio Real de Bruselas.  
 --¿Y eso qué significa! ¿No serás tan tonto de irte con ella?  
@@ -30,10 +30,10 @@ Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pond
 --Claro que me hace feliz, Marina es la única persona que me entiende.  
 --Esa chica no te quiere, ya te lo digo yo.  
 --¡Y tú qué sabrás, si a ti no te quiere nadie!  
---No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra y te deje, o cuándo te aburras tú ¿A dónde vas a ir? ¿Eh?  
---¡A cualquier sitio menos aquí!
+--No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra de ti y te deje, o cuándo te aburras tú ¿A dónde vas a ir?  
+--¡A cualquier sitio menos a esta casa!
 
-Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde estará el puto portátil! Dinero. Ni un puto duro. Espera que ahora vuelve.
+Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
 
 --Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?  
 --Sí, claro que me voy.  
@@ -44,9 +44,9 @@ Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla l
 --¿Porqué no te esperas a mañana?  
 --¡Porque me voy ya! ... ¿Dónde está mi portátil?  
 --Lo debió coger Anita para el trabajo de ciencias.  
--- Joer.  
+--Joer.  
 
-Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como siempre. Coño, y ahora no la despiertes. Joder. Esta puñetera madera siempre hace tanto ruido. Cuidado. 
+Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como siempre ¡Coño! Y ahora no la despiertes. Joder. Esta puñetera madera siempre hace tanto ruido. Cuidado. 
 
 --¿Qué haces?  
 --Ana ¿Dónde está mi portátil?  
@@ -55,7 +55,11 @@ Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como si
 --¿Felipe?  
 --¿Qué?  
 --¿Me das un beso?  
---[...] Vaale ... *Deica logo rapariga.*  
+--[...] Vaale ... *Vai rañala rapariga.*[^1]  
 --Te quieeroo tontito.  
 
+*José Castiñeira*
 
+### Notas:
+
+[^1]:  Expresión que se utilizó para la frase "Hasta la vista, baby" en la traducción al gallego de la película Terminator 2: Judgment Day.

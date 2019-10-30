@@ -26,7 +26,7 @@ Los nueve restantes salieron casi con desgana, pantalones sucios y el rostro env
 
 El viejo respira una vez. Parece que no sabe qué decir. Un pitido de aire rompe su garganta. Arrastra un pie sobre la tierra. Se oye algo que murmura. Sobre la tierra. Murmura. Nadie salvo Martha puede entenderle. Y en esto empieza a cantar con él:
 
-*Miner’s life is like a sailor’s.  
+*Miner’s life is like a sailor’s.[^1]  
 Board a ship to cross the waves.  
 Ev’ry day his life’s in danger,  
 Still he ventures being brave.  
@@ -34,7 +34,7 @@ Watch the rocks, they’re falling daily.
 Careless miners always fail.  
 Keep your hand upon the dollar  
 And your eye upon the scale.*  
-[...][^1]  
+[...]   
 
 Todos, lentamente, se van uniendo al canto. Primero Leslie, con una voz hermosa y antigua. Después Miss MacDonald y ese quiebro afónico característico y Heavyrunner jugueteando con los bajos. El viejo Deer golpea fuerte la ventana porque no sabe cantar. El coro de todo un pueblo y algunos ecos armónicos desde la mina repiten el siguiente estribillo:
 
@@ -56,7 +56,6 @@ Hay una carabina Kentucky solitaria frente a diez hombres inquietos. Se oyeron t
 
 D’Elhuyar empezó a exhalar despacio y su cuerpo se fue pegando al suelo como una piedra. Un, dos, tres. Davidson miró zas a la niña; apretó los puños y, en ese instante, d’Elhuyar disparó su aliento. La Lefaucheux golpeó en el aire con una nube rota de pólvora y fuego, bruta y limpiamente, casi sin eco. Se oía un rumor de insectos y un silencio de máquinas en la mina. Todos estuvieron quietos por un instante; estómago encogido, puños cerrados, boca abierta; un perro solo ladrando; alguien saldrá, después, corriendo.
 
-Notas
-----
+#### Notas:
 
-[^1]:Está canción en se puede oír en el minuto 4:30 [https://youtu.be/qpknc0aqzns](https://youtu.be/qpknc0aqzns)
+[^1]: Está canción en se puede oír en el minuto 4:30 de este video: [https://youtu.be/qpknc0aqzns](https://youtu.be/qpknc0aqzns)
