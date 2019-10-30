@@ -30,7 +30,7 @@ Juan.
 
 No sé cómo no oı́mos las sirenas; si las oı́mos no les hicimos caso.
 
-Él aún no habı́a terminado de salir del hoyo pero Laura dijo; Grita: <<Viva la República>> y alza ası́
+Él aún no habı́a terminado de salir del hoyo pero Laura dijo; Grita: "Viva la República" y alza ası́
 el puño. Juan no contestó. ¡Hazlo mascamierdas! O te fusilamos.
 
 Él la miró desde abajo, pero no abrió la boca. Se dispuso a marchar ¡Tu padre es un traidor! dijeron.
