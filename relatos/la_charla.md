@@ -19,8 +19,8 @@ Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pond
 --¿Y ya has pensado qué quieres estudiar?  
 --¿Qué quiero estudiar yo o si quiero estudiar lo que tú quieres que estudie?  
 --Hombre, no seas así.  
---¿De verdad quieres hablar de esto ahora? ¿Cómo quieres que sea? Si te digo que quiero estudiar filosofía me dirás que eso no tiene salida, si te digo que quiero estudiar bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
---¡Cómo que **dónde** vas a estudiar?  
+--¿De verdad vamos a hablar de esto ahora? Si te digo que voy a hacer filosofía me dirás que eso no tiene salida, si te digo bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
+--¡Cómo que **dónde?**  
 --Pues no lo sé, a Marina le han dado una beca para el Conservatorio Real de Bruselas.  
 --¿Y eso qué significa! ¿No serás tan tonto de irte con ella?  
 --Hombre, pues no sé, es mi novia.  
@@ -31,7 +31,7 @@ Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pond
 --Esa chica no te quiere, ya te lo digo yo.  
 --¡Y tú qué sabrás, si a ti no te quiere nadie!  
 --No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra y te deje, o cuándo te aburras tú ¿A dónde vas a ir? ¿Eh?  
---¡A cualquier sitio menos a esta casa!
+--¡A cualquier sitio menos aquí!
 
 Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde estará el puto portátil! Dinero. Ni un puto duro. Espera que ahora vuelve.
 
@@ -42,11 +42,11 @@ Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla l
 --¿Y dónde vas a dormir?  
 --En casa de la abuela.  
 --¿Porqué no te esperas a mañana?  
---Porque me voy ya... ¿Dónde está mi portátil?  
+--¡Porque me voy ya! ... ¿Dónde está mi portátil?  
 --Lo debió coger Anita para el trabajo de ciencias.  
 -- Joer.  
 
-Siempre está cogiendo mis cosas, niña mimada. Lo tendrá en su habitación, como siempre. Coño, y ahora no la despiertes. Joder. Esta puñetera madera siempre hace tanto ruido. Cuidado. 
+Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como siempre. Coño, y ahora no la despiertes. Joder. Esta puñetera madera siempre hace tanto ruido. Cuidado. 
 
 --¿Qué haces?  
 --Ana ¿Dónde está mi portátil?  
@@ -55,7 +55,7 @@ Siempre está cogiendo mis cosas, niña mimada. Lo tendrá en su habitación, co
 --¿Felipe?  
 --¿Qué?  
 --¿Me das un beso?  
---[...] Vaale. *Deica logo rapariga.*  
+--[...] Vaale ... *Deica logo rapariga.*  
 --Te quieeroo tontito.  
 
 
