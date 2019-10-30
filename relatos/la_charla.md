@@ -1,6 +1,6 @@
 # La charla.
 
----¿Quién está ahí?.--- Mierda. Piensa; estuviste con Juan charlando, mira que es brasas. No bebiste nada, bueno un poco. No se lo va a creer. Arréglate la camisa. Recto. No desvaríes. ---Soy yo.--- Despacio, asomate por la puerta. No despiertes a los demás. Habla bajo.... Pero no muy bajo. Ella estará leyendo... Qué pesada es.
+---¿Quién está ahí?.--- Mierda. Piensa; estuviste con Juan charlando, mira que es brasas. No bebiste nada, bueno un poco. No se lo va a creer, aunque es verdad. Arréglate la camisa. Recto. No desvaríes. ---Soy yo.--- Despacio, asómate por la puerta. No despiertes a los demás. Habla bajo.... Pero no muy bajo. Ella estará leyendo... Qué pesada es.
 
 --Dijimos a la una; llegas tarde.  
 --Pensé que ya te habrías acostado; estuve charlando con Juan y entre pitos y flautas se me pasó la hora, lo siento.  
@@ -33,18 +33,29 @@ Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pond
 --No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra y te deje, o cuándo te aburras tú ¿A dónde vas a ir? ¿Eh?  
 --¡A cualquier sitio menos a esta casa!
 
-Me voy. Portazo, me he pasado. Que le den. Me voy ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde está el puto portátil? Dinero. Ni un puto duro. Espera que ahora vuelve.
+Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde estará el puto portátil! Dinero. Ni un puto duro. Espera que ahora vuelve.
 
---Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?
---Sí, claro que me voy.
---Llévate algo de comer.
---No quiero nada.
---¿Y dónde vas a dormir?
---En casa de la abuela.
---¿Porqué no te esperas a mañana?
---Porque me voy ya... ¿Dónde está mi portátil?
---Lo debió coger Anita para el trabajo de ciencias.
--- Joer.
+--Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?  
+--Sí, claro que me voy.  
+--Llévate algo de comer.  
+--No quiero nada.  
+--¿Y dónde vas a dormir?  
+--En casa de la abuela.  
+--¿Porqué no te esperas a mañana?  
+--Porque me voy ya... ¿Dónde está mi portátil?  
+--Lo debió coger Anita para el trabajo de ciencias.  
+-- Joer.  
 
+Siempre está cogiendo mis cosas, niña mimada. Lo tendrá en su habitación, como siempre. Coño, y ahora no la despiertes. Joder. Esta puñetera madera siempre hace tanto ruido. Cuidado. 
+
+--¿Qué haces?  
+--Ana ¿Dónde está mi portátil?  
+--Encima de la mesa.  
+--Vale, anda, duermete.  
+--¿Felipe?  
+--¿Qué?  
+--¿Me das un beso?  
+--[...] Vaale. *Deica logo rapariga.*  
+--Te quieeroo tontito.  
 
 
