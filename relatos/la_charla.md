@@ -33,7 +33,7 @@ Nada, te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pond
 --No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra de ti y te deje, o cuándo te aburras tú ¿A dónde vas a ir?  
 --¡A cualquier sitio menos a esta casa!
 
-Portazo ¡Mierda! Me voy. Me he pasado. Que le den. Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
+**Portazo** ¡Mierda! Me voy. Me he pasado ¡Que le den! Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
 
 --Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?  
 --Sí, claro que me voy.  
@@ -51,7 +51,7 @@ Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como si
 --¿Qué haces?  
 --Ana ¿Dónde está mi portátil?  
 --Encima de la mesa.  
---Vale, anda, duermete.  
+-- *Okis....* Anda duérmete.  
 --¿Felipe?  
 --¿Qué?  
 --¿Me das un beso?  
