@@ -40,6 +40,6 @@ Entonces volé. Apenas pude ver la bomba cayendo y los aviones. Crucé toda la c
 Todavı́a tengo metralla cerca del pulmón.
 
 --¿Y qué pasó con el corazón, abuelo?  
---¿El de Juan? [...] No sé, supongo que prendió.
+--¿El de Juan? [...] No sé, creo que prendió.
 
 *José Castinneira*
