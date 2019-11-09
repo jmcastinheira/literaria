@@ -9,10 +9,10 @@ Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón e
 
 --¿Y ya has pensado qué quieres estudiar?  
 --¿Qué quiero estudiar o sí voy a estudiar lo que tú quieres?  
---Hombre, no seas así...
+--Hombre, no seas así...  
 --¿De verdad vamos a hablar de esto ahora? Si te digo que voy a hacer filosofía me dirás que eso no tiene salidas, si te digo que bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
 --¡Cómo que **dónde?**  
---Pues no lo sé, a Marina le han dado una beca para el Conservatorio Real de Bruselas.  
+--Pues no lo sé, a Marina le han dado una beca para el Conservatorio de Bruselas.  
 --¿Y eso qué significa! ¿No serás tan tonto de irte con ella?  
 --Hombre, pues no sé, es mi novia.  
 --¡Ah muy bien! Muy bien ¿Y de qué vas a vivir?  
@@ -33,7 +33,7 @@ Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón e
 --¿Y dónde vas a dormir?  
 --En casa de la abuela.  
 --¿Porqué no te esperas a mañana?  
---¡Porque me voy ya! ... ¿Dónde está mi portátil? 
+--¡Porque me voy ya! ... ¿Dónde está mi portátil?  
 --Lo cogió Anita para el trabajo de ciencias.
 
 Joer. Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como siempre ¡Coño! Y ahora no la despiertes ¡Mierda! Esta puñetera madera siempre hace tanto ruido. Cuidado. 

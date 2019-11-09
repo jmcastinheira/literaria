@@ -31,13 +31,11 @@ Juan.
 No sé cómo no oı́mos las sirenas; si las oı́mos no les hicimos caso.
 
 Él aún no habı́a terminado de salir del hoyo pero Laura dijo; Grita: "Viva la República" y alza ası́
-el puño. Juan no contestó. ¡Hazlo mascamierdas! O te fusilamos.
+el puño. Juan no contestó. ---¡Hazlo mascamierdas! O te fusilamos---.
 
-Él la miró desde abajo, pero no abrió la boca. Se dispuso a marchar ¡Tu padre es un traidor! dijeron.
-¡¡Fuegoo!! Y una lluvia de piedras volvió al asfalto.
+Él la miró desde abajo, pero no abrió la boca. Se dispuso a marchar ---¡Tu padre es un traidor!--- dijeron. ---¡¡Fuegoo!!--- Y una lluvia de piedras volvió al asfalto.
 
-Entonces volé. Apenas pude ver la bomba cayendo y los aviones. Crucé toda la calle volando.
-Todavı́a tengo metralla cerca del pulmón.
+Entonces volé. Apenas pude ver la bomba cayendo y los aviones. Crucé toda la calle volando. Todavı́a tengo metralla cerca del pulmón.
 
 --¿Y qué pasó con el corazón, abuelo?  
 --¿El de Juan? [...] No sé, creo que prendió.

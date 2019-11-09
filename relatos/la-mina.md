@@ -13,7 +13,7 @@ muerte.
 
 Poco a poco *Main Street N, Hughesville, Montana,* se va poblando. Las hermanas Loring despiertan a su padre y este sale de un brinco de la cama. Heavyrunner ya estaba rondando por la zona y el viejo Deer abrió la ventana de su cuarto. Miss MacDonald e hija y Jamie Morgan llegan juntas; Leslie Morgan, la cotilla, vendrá después. Poco a poco la calle principal se va llenando de gente asustada y valiente al mismo tiempo. La familia Erl aparecerán con sus fusiles *M1903 Springfield* de contrabando, y la joven Carlota traerá a su bebé en brazos. Un poco antes, ahora mismo, tres camiones *pickup Ford Model A* con diez hombres armados y cinco perros han llegado al pueblo.
 
-El viejo d’Elhuyar ya habrá terminado de montar el revólver y de introducir seis cartuchos de espiga en el tambor. Ha pasado todo esto. Martha tuvo que dejar apurada la limpieza en la cocina y se ha secado las manos en el mandil de flores; ahora, justo antes de tropezar, ha cogido a su marido del brazo. Pronto se acercarán a la calle. La pequeña Sarah señaló asustada los ladridos de los perros y la gata Molly trepó nerviosa por su cuello. Al poco Bartolomé salió y avanza para adelantarse. Nadie habla todavía, solo ladran los perros sobre un fondo de viento. Pies que se arrastran sobre la tierra. Un, dos. Un, dos.
+El viejo d’Elhuyar ya habrá terminado de montar el revólver y de introducir seis cartuchos de espiga en el tambor. Ha pasado todo esto: Martha tuvo que dejar apurada la limpieza en la cocina y se ha secado las manos en el mandil de flores; ahora, justo antes de tropezar, ha cogido a su marido del brazo. Pronto se acercarán a la calle. La pequeña Sarah señaló asustada los ladridos de los perros y la gata Molly trepó nerviosa por su cuello. Al poco Bartolomé salió y avanza para adelantarse. Nadie habla todavía, solo ladran los perros sobre un fondo de viento. Pies que se arrastran sobre la tierra. Un, dos. Un, dos.
 
 --Bartolomé O’Reilly ¡Cómo no! [...] Miren, todos sabemos qué va a pasar aquí... Háganse a un lado, sigan con sus cosas y nos iremos pronto.
 
@@ -24,7 +24,7 @@ Pies que se arrastran sobre la tierra. Los hermanos Erl acaban de cargar los fus
 
 Los nueve restantes salieron casi con desgana, pantalones sucios y el rostro envejecido. Abrieron las compuertas de atrás para sacar a los perros y los bajaron. Pies que se arrastran sobre la tierra. El viejo d’Elhuyar ayudado por Martha Perkins va llegando hasta O’Reilly; un, dos; un, dos. Tres hombres sujetan ahora a cinco perros furiosos. Molly intenta escapar, pero no lo consigue. La pequeña Sarah dice *¡Ay!* Bartolomé da un paso hacia atrás tras un ladrido. D’Elhuyar y Martha Perkins se han parado en frente de los hombres.
 
-El viejo respira una vez. Parece que no sabe qué decir. Un pitido de aire rompe su garganta. Arrastra un pie sobre la tierra. Se oye algo que murmura. Sobre la tierra. Murmura. Nadie salvo Martha puede entenderle. Y en esto empieza a cantar con él:
+El viejo respira una vez. Parece que no sabe qué decir. Un pitido de aire rompe su garganta. Arrastra un pie sobre la tierra. Se oye algo que murmura. Sobre la tierra, murmura. Nadie salvo Martha puede entenderle. Y en esto empieza a cantar con él:
 
 *Miner’s life is like a sailor’s.[^1]  
 Board a ship to cross the waves.  
@@ -47,14 +47,15 @@ And your eye upon the scale.*
 
 Pero un perro se soltó ladrando.
 
-La gata Molly, justo antes, había empezado a correr y Sarah salió tras ella. Bartolomé cargó su fusil desempolvado. Un, dos, tres. El canto cesó roto en un aliento contenido. Tan solo el sonido de un viento ladrando y el latido de Martha golpeando inquieto los oídos. El cañón alargado de la Lefaucheux persiguió por un momento al animal; un perro, en la mira, una niña, un perro, todo alternándose en espiral ligera. Un, dos, tres. Pies que se arrastran sobre la tierra. Martha colocó suave su mano sobre el fusil de O’Reilly
-y empujó despacio hacia abajo.
+La gata Molly, justo antes, había empezado a correr y Sarah salió tras ella. Bartolomé cargó su fusil desempolvado. Un, dos, tres. El canto cesó roto en un aliento contenido. Tan solo el sonido de un viento ladrando y el latido de Martha golpeando inquieto los oídos. *Pum-pum, pum-pum.* El cañón alargado de la Lefaucheux persiguió por un momento al animal; un perro, en la mira, una niña, un perro, todo alternándose en espiral ligera. Un, dos, tres. Pies que se arrastran sobre la tierra. Martha colocó suave su mano sobre el fusil de O’Reilly y empujó despacio hacia abajo.
 
-Hay una carabina Kentucky solitaria frente a diez hombres inquietos. Se oyeron tres disparos Bauum que reverberan en el monte haciendo crecer el cielo. D’Elhuyar amartilla su revolver. Tres perros furiosos serán abatidos. Los hermanos Erl recargarán muy pronto sus fusiles. Bartolomé solo se moverá tres pasos.
+Hay una carabina Kentucky solitaria frente a diez hombres inquietos. Se oyeron tres disparos *bauum* que reverberan en el monte haciendo crecer el cielo. D’Elhuyar amartilla su revolver. Tres perros furiosos serán abatidos. Los hermanos Erl recargarán muy pronto sus fusiles. Bartolomé solo se moverá tres pasos.
 
 --¡No será hoy, Señor Davison! ¡No será hoy!
 
-D’Elhuyar empezó a exhalar despacio y su cuerpo se fue pegando al suelo como una piedra. Un, dos, tres. Davidson miró zas a la niña; apretó los puños y, en ese instante, d’Elhuyar disparó su aliento. La Lefaucheux golpeó en el aire con una nube rota de pólvora y fuego, bruta y limpiamente, casi sin eco. Se oía un rumor de insectos y un silencio de máquinas en la mina. Todos estuvieron quietos por un instante; estómago encogido, puños cerrados, boca abierta; un perro solo ladrando; alguien saldrá, después, corriendo.
+D’Elhuyar empezó a exhalar despacio y su cuerpo se fue pegando al suelo como una piedra. Un, dos, tres. Davidson miró *zas* a la niña; apretó los puños y, en ese instante, d’Elhuyar disparó su aliento. La Lefaucheux golpeó en el aire con una nube rota de pólvora y fuego, bruta y limpiamente, casi sin eco. Se oía un rumor de insectos y un silencio de máquinas en la mina. 
+
+Todos estuvieron quietos por un instante; estómago encogido, puños cerrados, boca abierta; un perro solo ladrando; alguien saldrá, después, corriendo.
 
 #### Notas:
 
