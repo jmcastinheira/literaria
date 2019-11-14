@@ -5,18 +5,14 @@ La luz encendida. Mierda. Seguro que está leyendo en el salón. Piensa; estuvis
 --¿Quién está ahí?  
 --Yo...
 
-Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón el Juan. Un poco de fruta. La nevera vacía. Pues sí no le cae bien Marina que le den. Agua y melocotón. Lo que hay.  Te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pondré la tele a ver. Te sientas y terminas rápido. No entiendo porqué a Juan no le cae bien Marina. Ya verás, ahora me preguntará si ya sé qué quiero estudiar.
+Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón el Juan. Un poco de fruta. La nevera vacía. Pues sí no le cae bien Marina que le den. Agua y melocotón. Lo que hay.  Te comes esto y te vas a dormir, a ver si no se enrolla como siempre. Pondré la tele a ver. Te sientas y terminas rápido. No entiendo porqué a Juan no le cae bien Marina. Ya verás, ahora me dará la brasa: "Ya sabes qué quieres estudiar" ¡Voy a estudiar yo lo que tú digas, no te jode! ¡Qué te parece? Si le digo que voy a hacer filosofía me dirá que no tiene salida, si digo bellas artes se tirará de un puente o llamará a la poli yo que sé. Ya verás cuando le diga dónde voy a estudiar...  
 
---¿Y ya has pensado qué quieres estudiar?  
---¿Qué quiero estudiar o sí voy a estudiar lo que tú quieres?  
---Hombre, no seas así...  
---¿De verdad vamos a hablar de esto ahora? Si te digo que voy a hacer filosofía me dirás que eso no tiene salidas, si te digo que bellas artes te tirarás de un puente o llamarás a la policía, ya no sé. Qué te voy a decir... Además ni si quiera sé dónde voy a estudiar.  
 --¡Cómo que **dónde?**  
 --Pues no lo sé, a Marina le han dado una beca para el Conservatorio de Bruselas.  
 --¿Y eso qué significa! ¿No serás tan tonto de irte con ella?  
 --Hombre, pues no sé, es mi novia.  
 --¡Ah muy bien! Muy bien ¿Y de qué vas a vivir?  
---Seguro que la abuela me ayuda y luego ya me buscaré un curro de cualquier cosa.  
+--Seguro que la abuela me ayuda... Luego ya me buscaré un curro de cualquier cosa.  
 --Ya, ya... Bueno, si crees que eso te hace feliz...  
 --Claro que me hace feliz, Marina es la única persona que me entiende.  
 --Esa chica no te quiere, ya te lo digo yo.  
@@ -24,7 +20,7 @@ Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón e
 --No, a mí no me quiere nadie, pero tú eres mi hijo y aunque tú no me quieras yo sí que te quiero, os quiero a todos, porque sois mi sangre y cuando esa Marina se aburra de ti y te deje, o cuándo te aburras tú ¿A dónde vas a ir?  
 --¡A cualquier sitio menos a esta casa!
 
-¡Mierda! Me voy. Me he pasado ¡Que le den! Me piro ahora mismo. Pilla las cosas. Ropa. Mochila, pasta de dientes y todo lo del aseo. Dormiré en casa de la abuela. Marina estará bien borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
+¡Mierda! Me voy. Me he pasado ¡Que le den! Me piro ahora mismo. Ropa. Mochila y todo lo del aseo. Dormiré en casa de la abuela. Marina estará bien borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
 
 --Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?  
 --Sí, claro que me voy.  
