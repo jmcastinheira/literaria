@@ -23,16 +23,16 @@ Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón e
 ¡Mierda! Me voy. Me he pasado ¡Que le den! Me piro ahora mismo. Ropa. Mochila y todo lo del aseo. Dormiré en casa de la abuela. Marina estará bien borracha por ahí, paso ¿Dónde está el puto portátil! Dinero. Ni un duro ¡Joder! Espera que ahora vuelve...
 
 --Tienes ropa lavada en el cuarto de la plancha ¿Te vas ya?  
---Sí, claro que me voy.  
+--Sí.  
 --Llévate algo de comer.  
 --No quiero nada.  
 --¿Y dónde vas a dormir?  
 --En casa de la abuela.  
 --¿Porqué no te esperas a mañana?  
---¡Porque me voy ya! ... ¿Dónde está mi portátil?  
+--No sé, me voy ya... ¿Dónde está mi portátil?  
 --Lo cogió Anita para el trabajo de ciencias.
 
-Joer. Siempre está con mis cosas, niña mimada. Lo tendrá en su habitación, como siempre ¡Coño! Y ahora no la despiertes ¡Mierda! Esta puñetera madera siempre hace tanto ruido. Cuidado. 
+Esta niña... siempre está con mis cosas. Lo tendrá en su habitación ¡Y me dice que si me voy mañana! A ver, a ver... Ahora no la despiertes ¡Mierda! Esta puñetera madera siempre hace tanto ruido. Cuidado. 
 
 --¿Qué haces?  
 --Ana ¿Dónde está mi portátil?  
