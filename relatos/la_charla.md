@@ -32,7 +32,7 @@ Joer, siempre me pilla. Lo dicho. Ya sabía yo. Voy a comer algo. Qué cabrón e
 --No sé, me voy ya... ¿Dónde está mi portátil?  
 --Lo cogió Anita para el trabajo de ciencias.
 
-Esta niña... siempre está con mis cosas. Lo tendrá en su habitación ¡Y me dice que si me voy mañana! A ver, a ver... Ahora no la despiertes ¡Mierda! Esta puñetera madera siempre hace tanto ruido. Cuidado. 
+Esta niña... siempre está con mis cosas. Lo tendrá en su habitación ¡Y me dice que si me voy mañana! A ver, a ver... Ahora no la despiertes ¡Mierda! Esta puñetera madera siempre hace tanto ruido. ~~Cuidado. ~~
 
 --¿Qué haces?  
 --Ana ¿Dónde está mi portátil?  
