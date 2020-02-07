@@ -8,7 +8,7 @@ Vendrá la leche a las nueve. El negro Juanito es diveltido, no sabe hablal bien
 va a sabel tocal el piano? Seguro que lo aporrea cuando pase. Cucha, alla viene. Nunca habrá
 visto a un piano en medio de la caye. Una tampoco lo había visto ¿Qué va a pensá? Una sabe un poco tocal ese piano, el señol la va a enseñá. Todas las taldes mientras la siesta de la señola. Y ahora está el piano en medio de la caye. Míralo al Juanito, con dos dedos; parece tonto ¡Pablo, la leche!
 
-La gallega del cinco pasando ahora, tan altiva siemple. Sus señoles le complan buena ropa y ella la vende pa complal la lotería. Yo tambien iría muy fina con esas pintas; y fumando también ¡Se lo quiere lleval! ¿Adónde lo vas a metel, bluja! 
+La gallega del cinco pasando ahora, tan altiva siemple. Sus señoles le complan buena ropa y ella la vende pa complal la lotería. Yo tambien iría muy fina con esas pintas; y fumando también ¡Se lo quiere lleval! ¿Adónde lo vas a metel, bluja!
 ́
 El piano en medio de la calle. Cuando se entere el señol se muere. Le está bien por lo que le hizo
 a una. Una no puede defendelse. A mi Pablo me lo mandan a la hacienda y allá lo matan. Pablito... Mira el Juanito con el piano otra vez ¡Que se lo lleve! Así el señol aprenderá. No,  no,  la señola no es tonta...
