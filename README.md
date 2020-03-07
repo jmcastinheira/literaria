@@ -6,6 +6,6 @@ Este es un pequeño repositorio notas y relatos cortos de José Castiñeira. La 
 
 En consecuencia este espacio se compone de tres tipos de contenido los cuales iré incluyendo en alguna de las siguientes secciones:
 
-- [Relatos](../relatos/)
-- [Metaliteratura.](metaliteraria)
-- [Libros.](libros)
+- [Relatos](https://notas.entelequia.info/relatos)
+- [Metaliteratura.](https://notas.entelequia.info/metaliteratura)
+- [Libros.](https://notas.entelequia.info/libros)
