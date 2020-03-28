@@ -8,7 +8,7 @@ Vinimos a Miyoshi porque murió el abuelo. Mamá dijo "Tenemos que ayudar a la a
 
 - Nerea, anda, termina el arroz. 
 
-Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. En la mano izquierda sujeta el bol de sangre del abuelo, con la mano derecha se llena las manitas de arróz. Algunos granos se quedan pegaditos a los dedos; son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena; no seas cochiña; venga, termina. 
+Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. Con una mano sujeta el bol de sangre del abuelo, con la otra se llena las manitas de arróz. Algunos granos se quedan pegaditos a los dedos; son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena; no seas cochiña; venga, termina. 
 
 - ¿Vamos a pintar?"
 - No, Nerea; termina. 
