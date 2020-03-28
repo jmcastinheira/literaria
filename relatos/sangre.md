@@ -24,12 +24,11 @@ El bol del abuelo es negro por fuera. Se limpia con agua caliente y una gotita d
 - No sé, lo que quieras. [...] Pinta una manzana.
 - ¡Vale!
 
-Hay que secar bien el bol porque es de madera. Le vimos junto al árbol del estudio, pobre árbol; está lleno de cicatrices por todos lados; a Nerea le dió pena. Nadie sabe que nos fugamos. Los viejos nos hacían reverencias desde el choche. Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. El abuelo metió la mano en la manga largísima de su kimono y sonrió. "Esto me lo dió vuestra abuela por la boda" y sacó algo "¿Me guardáis un secreto? "Mirar, una manzana es de este color" Y nos enseño el bol rojo por dentro. "Chisss, lo vamos a esconder en casa, y cuando vengáis podéis sacarlo"
+Hay que secar bien el bol porque es de madera. Le vimos junto al árbol del estudio, pobre árbol; está lleno de cicatrices por todos lados; a Nerea le dió pena. Nadie sabe que nos fugamos. Los viejos nos hacían reverencias desde el choche. Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. El abuelo metió la mano en la manga largísima de su kimono y sonrió. "Esto me lo dió vuestra abuela por la boda" y sacó algo "¿Me guardáis un secreto? "Mirad, una manzana es de este color" Y nos enseño este bol rojo por dentro. "Chisss, lo vamos a esconder en casa, y cuando vengáis podéis usarlo." El bol del abuelo lo hizo la abuela Uzumi, pero ella no sabe dónde está. "¡Es rojísimo!" Dijo Nerea. "Es tan rojo porque lleva la sangre de ese árbol" Dijo el abuelo, y le tocó las cicatrices. Por eso saqué el bol; ahora lo pondré en su sitio.
 
 - Martaaa.
 - ¿Quée?
-- No me queda igual.
-
-¿De qué color es una manzana? 
+- La manzana no me queda igual.
+- Nerea, no seas tonta; nadie puede pintar una manzana.
 
 
