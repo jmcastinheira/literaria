@@ -1,7 +1,5 @@
 # Color.
 
-"Como la sangre" había dicho el abuelo; "una manzana es del color de la sangre".
-
 Hace tiempo que no veíamos a la abuela Uzumi, es tan guapa. 
 
 Vinimos a Miyoshi porque murió el abuelo. Mamá dijo: "Tenemos que ayudar a la abuela ¿Vale Marta?" Siempre dice: "¿Vale Marta?" Ni que fuera tonta: "Le das de comer a Nerea ¿me oyes?", "¿me oyes?"; con ese tonito. "No vayáis al estudio del abuelo"; dijo el año pasado; *ñiñiñi,* era la primera vez que veníamos a Miyoshi ¿Cómo íbamos a ir? ¡Si no sabíamos llegar! Pero al final llegamos, llegamos sin querer y vimos al abuelo. 
