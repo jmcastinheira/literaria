@@ -14,12 +14,12 @@ Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las man
 
 El bol del abuelo es negro por fuera. Se limpia con agua caliente y una gotita de jabón. Un poquito así... Luego hay que secarlo bien: "Sécalo muy bien, pequeña" decía el abuelo. Por dentro es rojo como una manzana.
 
-- ¿Me pintas una manaza?
-- ¡Bieeen!
+- ¿Me pintas una manaza, Nerea?
+- ¡Siii!
 
 Nadie sabía que nos fugamos, le vimos junto al árbol del estudio. Los viejos nos hacían reverencias desde el choche; Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. 
 
-Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Esto me lo regaló vuestra abuela por la boda". "¡Es rojísimo!" Dijo Nerea.
+Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Vuestra abuela Uzumi me regaló esto por la boda". "¡Es rojísimo!" Dijo Nerea.
 
 - Martaaa.
 - ¿Quée?
