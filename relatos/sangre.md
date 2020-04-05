@@ -28,4 +28,4 @@ Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si 
 
 Mamá no sabe que tenemos escondido el bol del abuelo, *chisss*. Hay que acariciarlo suave con los dedos y así se queda brillante. La abuela lo hizo con sangre del árbol y polvo de hierro. "Pobre árbol, por eso tiene tantas cicatrices." Dijo Nerea.
 
-¿Me guardáis un secreto? Una manzana es de este color. Como la sangre.
+¿Me guardáis un secreto? Una manzana es así, como la sangre.
