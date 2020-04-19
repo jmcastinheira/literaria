@@ -8,11 +8,11 @@ El tacto de una pieza de Urushi es especial, tiene como calorcito. Con esa suavi
 
 ¡Era difícil! Primero una capa de resina y luego otra. Había que lijar mucho cuando se secaba. Sí... Con una piedra, así; y luego con el papel, así. Mucho, mucho tiempo ¡No se acababa nunca!
 
-Eso lo repetíamos un montón de veces ¡Hay! Sobre todo lijar; con la piedra, el papel. Al final con los dedos ¡Sí! La piel también suaviza la madera. Esas rayitas ¿Las ves? Sentías arrastrar el polvo con los dedos. 
+Eso lo repetíamos un montón de veces ¡Ay! Sobre todo lijar; con la piedra, el papel. Al final con los dedos ¡Sí! La piel también suaviza la madera. Esas rayitas ¿Las ves? Sentías arrastrar el polvo con los dedos. 
 
 Yo a veces sangraba. 
 
-Un día llené todo el bol de sangre. Seguí arrastrando los dedos... rojos; todo de sangre. No me daba cuenta. Estaba tan absorta. Era ese calor. Como un abrazo, como si hubiera vida latiendo; así,  en la madera. Mi único abrazo. 
+Un día llené todo el bol de sangre. Seguí arrastrando los dedos... rojos; todo de sangre. No me daba cuenta. Estaba tan absorta. Era ese calor. Como un abrazo, como si hubiera vida latiendo, así; en la madera. Mi único abrazo. 
 
 El Sensei me pegó. Me pegaba con el bastón. Son cosas que hacen los maestros. Me pegó muy fuerte. 
 
