@@ -16,7 +16,7 @@ Un día llené todo el bol de sangre. Seguí arrastrando los dedos... rojos; tod
 
 El Sensei me pegó. Me pegaba con el bastón. Son cosas que hacen los maestros. Me pegó muy fuerte. 
 
-La vida te salva, a veces, de esas cosas. Pinté ese bol de rojo por dentro y se lo regalé a tu abuelo. Era mi dote; poco más tenía yo. Que pena que se haya perdido. 
+La vida te salva, a veces, de estas cosas. Pinté aquel bol de rojo por dentro y se lo regalé a tu abuelo. Era mi dote; poco más tenía yo. Que pena que se haya perdido. 
 
 Le gustaban mis manos ¿Sabes? Se quedaba embobado, decía que eran de artista. Yo me limpiaba deslizando el dorso sobre la palma, así, sin prisa. Casi detenía la tarde sólo para verle mirar mis manos. Le sonreía; y después esperaba un beso... Aquí, Nena, dame un beso.
 
