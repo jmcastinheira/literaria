@@ -4,13 +4,13 @@ Marta, nenita, acércate. Nunca estarás sóla.
 
 Recuerdo los años que estuve en el taller ¿Me das la mano? Yo no era tan guapa como tú, mi niña; que piel tan bonita tienes. 
 
-Al principio me gustaba trabajar con la madera... Pero también fue triste ¿Tú te crees? Bambú de comer, arroz y sopa miso. Siempre igual. Sin ver a nadie ¡Sin tocar a nadie! Es tan importante abrazar y que te quieran. Déjate querer ¿Me oyes? 
-
-Allí sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
+Al principio me gustaba trabajar con la madera... Pero también fue triste ¿Tú te crees? Bambú de comer, arroz y sopa miso. Siempre igual. Sin ver a nadie ¡Sin tocar a nadie! Es tan importante abrazar y que te quieran ¿Me oyes?
 
 Cualquier pieza de Urushi tiene una suavidad amable; pero es difícil. Pones la resina del árbol y la dejas secar al menos una semana. Eso hay que hacerlo muchas veces. Las cosas llevan su tiempo y hay que respetarlo.
 
-Después de cada secado se alisa con la piedra de pulir y el papel de lija. Al final con tus propios dedos; por eso es tan especial. La gente dice sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
+Sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
+
+Tras cada secado se alisa cada pieza con la piedra de pulir y el papel de lija. Al final con tus propios dedos; por eso es tan especial. La gente dice sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
 
 Y a veces sangraba.
 
