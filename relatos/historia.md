@@ -26,7 +26,9 @@ Guiñando un ojo ella se desvela. El gato ronronea suave y sube al sofá. ---¡Q
 
 Nerea se incorpora. En la estantería del fondo hay algo perdido entre los libros. El abuelo rezaba con ese cuenco,  murmura. Pero no lo recuerda. Al abrir más los ojos todo se acelera. Tiene el puño apretado y ha contenido la respiración. *[...] Este cuenco lacado se encontró en Hemudu ¿Qué os parece? [...]* Su brazo intenta extenderse, como para tomar algo. Al levantarse tropieza y Michi se dispara ---¿Qué haces?--- Sin tomar aliento un paso, otro paso.
 
-Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace tanto tiempo.---¡Nerea!--- Simple como una manzana. No sé, Marta ¿Qué será de Marta?... Llamaré a Mamá.
+Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace mucho tiempo.---¡Nerea!--- Solo es un cuenco simple como una manzana. No sé, Marta ¿Qué será de Marta?... 
+
+Llamaré a Mamá.
 
 
 
