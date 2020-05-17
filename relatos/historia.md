@@ -20,7 +20,7 @@ Pero Mateo no dice nada. Ella se deja caer en el bostezo. ---Que rollo.--- La te
 
 *Suponemos que los Ainu heredan su tradición de los primeros habitantes de la isla, quizá del neolítico. Este peine de madera lacada tendrá unos 8.000 años [...]*
 
---¡Que bonito!--- Dice Mateo.  
+--¡Que bonito! ---Dice Mateo.  
 
 Guiñando un ojo ella se desvela. El gato ronronea suave y sube al sofá. ---¡Que pelos!--- En la pantalla, un color rojo intenso como la sangre. *[...] los Ainu todavía ofrecen vino a sus ancestros en cuencos lacados [...]* 
 
