@@ -18,15 +18,15 @@ Los dedos de ella empiezan a caminar por el rostro paciente de Mateo. Le rasca l
 
 Pero Mateo no dice nada. Ella se deja caer en el bostezo. ---Que rollo.--- La tele muestra a esa señora con gestos apurados. Nerea cierra los ojos y respira profundo. Michi se acerca estirándose. 
 
-*Suponemos que los Ainu heredan su tradición de los primeros habitantes de la isla, quizá del neolítico. Este peine de madera lacada tendrá unos 8.000 años [...]*
+*Suponemos que los Ainu heredan su tradición de los primeros habitantes de la isla, quizá del neolítico. Este peine de madera lacada fue elaborado hace 8.000 años [...]*
 
 --¡Que bonito! ---Dice Mateo.  
 
 Guiñando un ojo ella se desvela. El gato ronronea suave y sube al sofá. ---¡Que pelos!--- En la pantalla, un color rojo intenso como la sangre. *[...] los Ainu todavía ofrecen vino a sus ancestros en cuencos lacados [...]* 
 
-Nerea se incorpora. En la estantería del fondo hay algo perdido entre los libros. El abuelo rezaba con ese cuenco,  murmura. Pero no lo recuerda. Al abrir más los ojos todo se acelera. Tiene el puño apretado y ha contenido la respiración. *[...] Este cuenco lacado se encontró en Hemudu ¿Qué os parece? Tendrá unos 7.000 años [...]* Su brazo intenta extenderse, como para tomar algo. Al levantarse tropieza y Michi se dispara ---¿Qué haces?--- Sin tomar aliento un paso, otro paso.
+Nerea se incorpora. En la estantería del fondo hay algo perdido entre los libros. El abuelo rezaba con ese cuenco,  murmura. Pero no lo recuerda. Al abrir más los ojos todo se acelera. Tiene el puño apretado y ha contenido la respiración. *[...] Este cuenco lacado se encontró en Hemudu ¿Qué os parece? [...]* Su brazo intenta extenderse, como para tomar algo. Al levantarse tropieza y Michi se dispara ---¿Qué haces?--- Sin tomar aliento un paso, otro paso.
 
-Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace tiempo.---¡Nerea!--- Simple como una manzana. No sé... Llamaré a Mamá.
+Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace tanto tiempo.---¡Nerea!--- Simple como una manzana. No sé, Marta ¿Qué será de Marta?... Llamaré a Mamá.
 
 
 
