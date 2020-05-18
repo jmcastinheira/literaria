@@ -4,13 +4,13 @@
 
 Ella tiene el rostro limpio y mirada traviesa. Lleva un pantaloncito corto, la camiseta de sisa ancha y unos calcetines rosas con dedos. Está tumbada en el sofá. Ahora juega con sus piernas por el aire y alza su mano, luego la deja caer en el hombro de ese chico.  Al fondo se acerca un gato. 
 
-- Matthew tío ¿No lo puedes poner a 2x?
-- ¿Qué dices?
-- A 2x, en YouTube se puede; así acabamos antes.
--  Tía, la profe nos dijo que lo viéramos...
-- ¡Yaa! Pero lo vemos a 2x.
-- 1.5... No te gusta nada la historia ¿Eh?
-- ¡Bah! ¿Que más da? ¡Hay que vivir el presente, gua-pi-to!
+--Matthew tío ¿No lo puedes poner a 2x?  
+--¿Qué dices?  
+--A 2x, en YouTube se puede; así acabamos gui antes.  
+--Tía, la profe nos dijo que lo viéramos...  
+--¡Yaa! Pero lo vemos a 2x.  
+--1.5... No te gusta nada la historia ¿Eh?  
+--¡Bah! ¿Que más da? ¡Hay que vivir el presente, gua-pi-to!  
 
 Han empezado a recorrer sus dedos el rostro paciente de Mateo. Le está rascando la oreja, la sien; aprieta su nariz ahora y tapa sus ojos. El dirá  ---¡Para!--- en cualquier momento y ella, pícara, le sonreirá. 
 
@@ -20,13 +20,15 @@ Pero no dice nada. Ella se deja caer con un bostezo. ---Que rollo.--- La tele mu
 
 *Este peine de madera lacada tiene unos 8.000 años [...]*
 
-- ¡Que bonito!--- Dice Mateo.
+--¡Que bonito!--- Dice Mateo.  
 
 Guiñando un ojo se desvela. El gato ronronea suave y sube al sofá. ---¡Que pelos!--- En la pantalla, un color rojo intenso como la sangre. *[...] los Ainu todavía ofrecen vino a sus ancestros en cuencos lacados [...]* 
 
-Nerea se ha incorporado. En la estantería del fondo hay algo perdido entre los libros. El abuelo rezaba con ese cuenco, murmura. Pero no lo recuerda. Al abrir más los ojos todo se acelera. Tiene el puño apretado y ha contenido la respiración. *[...] Este cuenco lacado se encontró en Hemudu ¿Qué os parece? Tendrá unos 7.000 años [...]* Su brazo intenta extenderse, como para tomar algo. Al levantarse tropieza y Michi se dispara ---¿Qué haces?--- Sin tomar aliento un paso, otro paso.
+Nerea se ha incorporado. En la estantería del fondo hay algo perdido entre los libros. El abuelo rezaba con ese cuenco, murmura. Pero no lo recuerda. Al abrir más los ojos todo se acelera. Tiene el puño apretado y ha contenido la respiración. *[...] Este cuenco lacado se encontró en Hemudu ¿Qué os parece? [...]* Su brazo intenta extenderse, como para tomar algo. Al levantarse tropieza y Michi se dispara ---¿Qué haces?--- Sin tomar aliento un paso, otro paso.
 
-Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace tiempo.---¡Nerea!--- Simple como una manzana. No sé... Llamaré a Mamá.
+Se ha acercado hasta la estantería,  ---Nerea...--- pum, pum, el árbol de la abuela tenía tantas cicatrices, pum, pum. Aliento. Hace tiempo.---¡Nerea!--- Tan solo es un cuenco simple, como una manzana. No sé, Marta ¿Qué será de Marta?... 
+
+Llamaré a Mamá.
 
 
 
