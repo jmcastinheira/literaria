@@ -4,7 +4,7 @@
 
 *Acompáñenme a un viaje hasta las primeras poblaciones de Japón ¿Cómo vivieron hace 10.000 años? ¿Pensaban diferente sobre la vida [...]*
 
-Mi nieta... Tienes el rostro limpio y la mirada traviesa. Llevas ese pantaloncito corto, la camiseta de sisa ancha de tu hermana y unos calcetines rosas con dedos. Estás tumbada en el sofá. Ahora juegas con tus piernas por el aire y alzas la mano, luego la dejarás caer en el hombro de este joven. Al fondo se acerca el gato. 
+Tienes el rostro limpio y la mirada traviesa. Llevas ese pantaloncito corto, la camiseta de sisa ancha de tu hermana y unos calcetines rosas con dedos. Estás tumbada en el sofá. Ahora juegas con tus piernas por el aire y alzas la mano, luego la dejarás caer en el hombro de este joven. Al fondo se acerca el gato. 
 
 --Matthew tío ¿No lo puedes poner a 2x?  
 --¿Qué dices?  
@@ -18,7 +18,7 @@ Has empezado a recorrer con tus dedos el rostro paciente de Mateo. Le rascas la 
 
 *En Hokkaidō vive una etnia antigua. Son distintos al resto de japoneses ¡No tienen los ojos achinados! Se llaman "Ainus", palabra que significa "humanos" ¿Qué les parece? [...]*
 
-Pero él no dice nada y te dejas caer en el bostezo. ---Que rollo.--- La televisión muestra a una señora de gestos apurados. Pronto cierras los ojos y respiras profundamente. 
+Pero él no dice nada y te dejas caer en el bostezo. ---Que rollo.--- La televisión muestra a una señora de gestos apurados. Pronto cierras los ojos y respiras profundamente ¿Alguna vez piensas en nosotros, Nerea?
 
 *Este peine de madera lacada tiene unos 8.000 años [...]*
 
@@ -26,8 +26,8 @@ Pero él no dice nada y te dejas caer en el bostezo. ---Que rollo.--- La televis
 
 Guiñando un ojo te desvelas. El gato ronronea suave y sube al sofá. ---¡Que pelos!--- En la pantalla, un color rojo intenso como la sangre. *[...] la población Ainu todavía ofrece vino a sus ancestros en cuencos lacados, es un gesto de respeto [...]* Algo, quizás un recuerdo, parece inquietarte ¿Qué pasa, pequeña?
 
-Te has incorporado. Sentada sobre el sofá revisas la estantería. Quizás lo encuentres... Rezábamos con el cuenco rojo. Tienes el puño apretado y has contenido la respiración. *[...] un bol lacado se encontró en Hemudu [...]* Había que acariciarlo ¿Recuerdas? Nos turnábamos para darle brillo. A Marta y a ti os encantaba. Hacíamos ofrendas a la hierba, al hermano viento, jugábamos a beber del reflejo de la luna en el agua. Cantabamos suave, muy despacio. Susurrando calladas como ahora. Niña, no tengas miedo. 
+Te has incorporado. Sentada sobre el sofá revisas la estantería. Quizás lo encuentres... Rezábamos con ese cuenco rojo. Tienes el puño apretado y has contenido la respiración. *[...] un bol lacado se encontró en Hemudu [...]* Había que acariciarlo ¿Recuerdas? Nos turnábamos para darle brillo. A Marta y a ti os encantaba. Hacíamos ofrendas a la hierba, al hermano viento, jugábamos a beber del reflejo de la luna en el agua. Cantabamos suave, muy despacio. Susurrando calladas como ahora. Niña, no tengas miedo. 
 
-Sin tomar aliento te has acercado hasta la estantería ---Nerea, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo, Nerea. Te has quedado parada, como pensando ¿En qué piensas? ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera. Es un cuenco muy simple ¿Verdad? Simple como una manzana... pero tiene algo. No sé; Marta ¿Qué será de mi hermana?
+Sin tomar aliento te has acercado hasta la estantería ---Tía, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo, Nerea. Te has quedado parada, como pensando **¿En qué piensas?** ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera. Es un cuenco muy simple ¿Verdad? Simple como una manzana... pero tiene algo. No sé; Marta ¿Qué será de mi hermana?
 
 Llamaré a Mamá.

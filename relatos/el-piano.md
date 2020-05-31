@@ -1,7 +1,7 @@
 # El piano.
 
-Matanzas. Hace dos anos, de niña, una decía; el señol la tlata bien a una. Una trabajaba y era bien.
-¡Nena, limpia los cristales! dice la señola, y una limpia el salón de techos altos, pero el señol no
+Matanzas. Hace dos anos, de niña, una decía; el señol la tlata bien a una. Una trabajaba y era bien
+¡Nena, limpia los cristales! Dice la señola, y una limpia el salón de techos altos, pero el señol no
 mira los cristales. Y ahora ta el piano en medio de la caye.
 
 Vendrá la leche a las nueve. El negro Juanito es diveltido, no sabe hablal bien el español ¿Cómo
@@ -19,7 +19,7 @@ a una. Una no puede defendelse. A mi Pablo me lo mandan a la hacienda y allá lo
 
 ¡Míralo! Ahí lo está con el mazo ¡Pablo! ¿Pero que haces? ¡Ay su madre vieja, lo va a golpeal! Pablo no lo rompas ¿Pero es que esa furcia no lo ha vendío? ¡Pablo no, el piano no! Lo ha escacharrao. Ni pa la hoguera. Menudo ruido, menuda basura en medio de la caye ¿Qué habrá vendío la vieja?
 
-¡Ay! Llama la señora... Que raro.
+¡Ay! Llama la señola... Que raro.
 
 *José Castiñeira*
 
