@@ -28,6 +28,8 @@ Guiñando un ojo te desvelas. El gato ronronea suave y sube al sofá. ---¡Que p
 
 Te has incorporado. Sentada sobre el sofá revisas la estantería. Quizás lo encuentres... Rezábamos con ese cuenco rojo. Tienes el puño apretado y has contenido la respiración. *[...] un bol lacado se encontró en Hemudu [...]* Había que acariciarlo ¿Recuerdas? Nos turnábamos para darle brillo. A Marta y a ti os encantaba. Hacíamos ofrendas a la hierba, al hermano viento, jugábamos a beber del reflejo de la luna en el agua. Cantabamos suave, muy despacio. Susurrando calladas como ahora. Niña, no tengas miedo. 
 
-Sin tomar aliento te has acercado hasta la estantería ---Tía, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo, Nerea. Te has quedado parada, como pensando **¿En qué piensas?** ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera. Es un cuenco muy simple ¿Verdad? Simple como una manzana... pero tiene algo. No sé; Marta ¿Qué será de mi hermana?
+Sin tomar aliento te has acercado hasta la estantería ---Tía, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo, Nerea. Te has quedado parada, como pensando. ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera.--- 
 
-Llamaré a Mamá.
+Es un cuenco simple ¿Verdad? Suave como una manzana, pero tiene algo. Traspasa el tiempo, la historia, nos une todavía en los gestos y en el mismo recuerdo de siempre. Es algo sencillo; nunca estarás sola. 
+
+---Llamaré a Mamá.---
