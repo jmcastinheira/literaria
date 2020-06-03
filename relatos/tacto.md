@@ -8,11 +8,11 @@ Recuerdo los años que estuve en el taller ¿Me das la mano? Yo no era tan guapa
 
 Al principio me gustaba trabajar con la madera... Pero también fue triste ¿Tú te crees? Bambú de comer, arroz y sopa miso. Siempre igual. Sin ver a nadie ¡Sin tocar a nadie! Es tan importante abrazar y que te quieran ¿Me oyes?
 
-Cualquier pieza de Urushi tiene una suavidad amable; pero es difícil. Pones la resina del árbol y la dejas secar al menos una semana. Eso hay que hacerlo muchas veces. Las cosas llevan su tiempo y hay que respetarlo.
+Todo lacado de Urushi tiene una suavidad amable; pero es difícil. Aplicas la resina y la dejas secar al menos una semana. Una y otra vez. Las cosas bien hechas llevan su tiempo y hay que respetarlo.
 
-Sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
+A veces era agobiante. Sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
 
-Tras cada secado se alisa cada pieza con la piedra de pulir y el papel de lija. Al final con tus propios dedos; por eso es tan especial. La gente dice sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
+Alisabamos cada pieza con la piedra de pulir y el papel de lija; un grano más fino de cada vez. Al final se termina con la yema de los dedos. Por eso es tan especial. La gente afirma sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
 
 Y a veces sangraba.
 
