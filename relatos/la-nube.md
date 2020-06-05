@@ -12,8 +12,8 @@ El tren salió de Vigo en dirección A Coruña. Yo lo cogí en algún punto inte
 
 Bajaste de los cielos suave y deliciosamente, como si fueras viento solo, soplo suave de algún aliento desconocido. Blanca, casi un pedazo de nube que se ha caído; qué le voy a hacer; yo no pude resistirme y te agarré en la mano, dulce y delicadamente, pero seguí corriendo.
 
-¡Cómo es posible que entre tantas nubes, entre tantos seres, hayas venido tú, precisamente, a encontrarte conmigo? Cualquiera habría pasado de largo; pocos te habrían visto; gente que tendría en sus manos otras cosas; teléfonos o envoltorios de chocolatinas. Tal vez un niño intentara detenerte y tú, esquiva siempre, habrías huido juguetona y sin remedio. Pero fui yo quien se puso en tu frente. Tú, que habrías sido tan solo una pluma tendida en la acera estás aquí conmigo. Me has hecho sonreír en tan solo un segundo ¿Qué será de tu vida y de la mía?
+¡Cómo es posible que entre tantas nubes, entre tantos seres, hayas venido tú, precisamente, a encontrarte conmigo? Cualquiera habría pasado de largo; pocos te habrían visto; gente que tendría en sus manos otras cosas; teléfonos o envoltorios de chocolatinas. Tal vez un niño intentara detenerte y tú, esquiva siempre, habrías huído juguetona y sin remedio. Pero fui yo quien se puso en tu frente. Tú, que habrías sido tan solo una pluma tendida en la acera, me has hecho sonreír. Este es el alivio de un segundo.
 
-Llévate mi aliento; espero volver a verte algún día.
+Llévate mi aliento ¿Qué será mañana de tu vida y de la mía?
 
 *José Castinneira*
