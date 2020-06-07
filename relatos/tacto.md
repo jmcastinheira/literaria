@@ -12,7 +12,7 @@ Todo lacado de Urushi tiene una suavidad amable; pero es difícil. Aplicas la re
 
 A veces era agobiante. Sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
 
-Alisabamos cada pieza con la piedra de pulir y el papel de lija; un grano más fino de cada vez. Al final se termina con la yema de los dedos. Por eso es tan especial. La gente afirma sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
+Alisabamos cada pieza con la piedra de pulir y el papel de lija; un grano más fino de cada vez. Al final con la yema de los dedos. Por eso es tan especial. La gente afirma sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
 
 Y a veces sangraba.
 
