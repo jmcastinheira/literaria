@@ -28,7 +28,7 @@ Guiñando un ojo te desvelas. El gato ronronea suave y sube al sofá. ---¡Que p
 
 Te has incorporado. Sentada sobre el sofá revisas la estantería. Quizás lo encuentres. Rezábamos con ese cuenco de madera. Tienes el puño apretado y has contenido la respiración mientras atiendes; *[...] un bol lacado se encontró en Hemudu [...]* Había que acariciarlo ¿Recuerdas? Nos turnábamos para darle brillo. A Marta y a ti os encantaba. Hacíamos ofrendas a la hierba, al hermano viento, jugábamos a beber del reflejo de la luna en el agua. Cantabamos suave, muy despacio. Susurrando calladas como ahora. Niña, no tengas miedo. 
 
-Sin tomar aliento te has acercado hasta la estantería. ---Tía, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo. Te has quedado parada, como pensando. ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera.--- 
+Sin tomar aliento te has acercado hasta la estantería. ---Tía, no me asustes--- dice Mateo. Un paso, otro paso. Absorta y delicada, como eras. "El árbol de la abuela tenía tantas cicatrices" murmuras.  Pum, pum. Aliento. Eso fue hace tiempo; te has quedado parada, como pensando. ---Cuando te fuiste no quise verte. Pobrecita abuela... ya no estabas aquí. Te echo de menos. Me gustaba ver tus manos acariciar la madera.--- 
 
 *[...] en el año 2019 Japón reconoció oficialmente la cultura de los Ainu, otorgándole estatus de "pueblo indígena", después de siglos de discriminación.*
 
