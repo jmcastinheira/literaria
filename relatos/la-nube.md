@@ -1,6 +1,6 @@
 # La nube.
 
-Sí hubiera sabido que no eras una nube,  no te habría cogido. No tuve demasiado tiempo para decidirlo. 
+Sí hubiera sabido que no eras una nube,  no te habría cogido. No tuve tiempo para pensarlo. 
 
 Un minuto es mucho. Suficiente para llegar tarde al autobús del aeropuerto; para perder el vuelo a Madrid y no comparecer a una entrevista; esa que habría cambiado tu vida para siempre. Bastante para que nos crucemos o no nos crucemos algún día en la parada. Demasiada responsabilidad, demasiado tiempo.
 
