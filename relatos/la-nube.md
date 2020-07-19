@@ -18,6 +18,6 @@ Bajaste de los cielos suave y deliciosamente, como si fueras viento solo, soplo 
 
 ¡Cómo es posible que entre tantos seres, hayas venido tú, precisamente, a encontrarte conmigo? Cualquiera habría pasado de largo; pocos te habrían visto; gente que tendría en sus manos otras cosas; teléfonos o envoltorios de chocolatinas. Tal vez un niño intentara detenerte y tú, esquiva siempre, habrías huído juguetona y sin remedio. Pero fui yo quien se puso en tu frente. Tú, que habrías sido tan solo una pluma tendida en la acera, te has ensanchado; en los albores del cielo, para ser esponjosa y blanca, suave, como una nube. Me has hecho sonreír, este es el alivio de todo un segundo.
 
-Tranquila,  te llevarás mi aliento ¿Qué será mañana de tu vida y de la mía?
+¿Qué será mañana de tu vida y de la mía?
 
 *José Castinneira*

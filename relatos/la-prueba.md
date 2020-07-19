@@ -1,10 +1,10 @@
 # La prueba.
 
-En el oscuro cuatro, allá en la mesa; el perfil delgadísimo de un hombre. Poca gente se ha dedicado con tal obsesión, hasta agotar todas las horas de la noche. No hay tiempo de pensar, puede vivir dormido siempre, como un funcionario, o un hombre de la basura. En los momentos lúcidos se ríe de toda esa rutina. Otras veces se consuela con la esperanza de poder salir. 
+En el oscuro cuarto, allá en la mesa; el perfil delgadísimo de un hombre. Poca gente se ha dedicado con tal obsesión, hasta agotar todas las horas de la noche. No hay tiempo de pensar, puede vivir dormido siempre, como un funcionario, o un hombre de la basura. En los momentos lúcidos se ríe de toda esa rutina. Otras veces se consuela con la esperanza de poder salir. 
 
 Nunca había tenido tan claras las cosas. Hace años sembró la idea de escapar de esta vida sin sentido; pero no supo cuándo, ni cómo hasta que conoció la prueba. 
 
-El viejo gitano le habı́a informado. Fue justo a tiempo, aquella tarde, en la taberna del muelle. Entonces todo cambió. Una cerveza, otra y el mundo no era más que un conjunto de latas agitándose de la mañana a la noche. Nada concreto fue dicho, solo se vislumbró la lejana posibilidad de una alternativa:
+El viejo gitano le habı́a informado; fue justo a tiempo, aquella tarde, en la taberna del muelle. Entonces todo cambió. Una cerveza, otra y el mundo no era más que un conjunto de latas agitándose de la mañana a la noche. Nada concreto fue dicho, solo se vislumbró la lejana posibilidad de una alternativa:
 
 --Amigo, si estas atento se oyen rumores; poquita cosa... Tranquilo, yo no te camelo. Los chavales comentan tonterías. Algunas indicasiones sin atar; un payo que conoció a un guripa ¿Quién sabe? Pero algo es algo ¿No? Esta güeno ese reto, naide conoce el verdadero problema  *jaja* ¿No es genial? Difı́sil de decir, pero el menda no te camela que lo sé de buenas tintas. La ghente no habla ná; pero tú eres de bien; mereces salir ¿Cómo preparar una prueba que naide conose? ¡Ese es problema; no? Yo te voa ayudá ¿Amigos? 
 
