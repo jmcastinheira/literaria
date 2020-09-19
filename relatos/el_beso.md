@@ -10,11 +10,11 @@ Es mejor ir temprano; tendrás tiempo de recorrer despacio los pasillos. Si baja
 
 [...] 
 
-El cielo de mallorca tiene un color intenso, igual que el de aquí en Berkeley, parecen sacados de una película de animación moderna. Disfruta de esta época de novedades y aprende mucho, pero ten cuidado es peligroso enamorarse en una isla. Allí, justo antes de todo, conocí a tu madre. 
+El cielo de mallorca tiene un color intenso; es igual que el de aquí en Berkeley, ambos parecen sacados de una película de animación moderna. Disfruta de *Sa Roqueta* y aprende mucho, pero ten cuidado, es peligroso enamorarse en una isla. Fue allí, justo antes de todo, donde conocí a tu madre. 
 
-No sé si te lo habrá contado; ese día Biel se entretenía constantemente con los grupitos de amigas que se encontraba. Todo se iba transformando en un jaleo de gente y calor agobiante. Empujones, ruidos, esperas demasiado largas por una caña... Por eso es bueno ir temprano. A tu madre no le importaban estas cosas. Recuerdo el dolor de piés y el calor que hacía. Ni las bermudas, ni las avarcas, ni la sombra de la calle eran capaces de retenerme un solo minuto más; así que grité algo como "¡Marcho!" pero no me fui. 
+No sé si te lo habrá contado; ese día Biel se entretenía constantemente con los grupitos de amigas que se encontraba. Todo iba transformándose en un jaleo de gente y calor agobiante. Empujones, ruidos, esperas demasiado largas por una caña... Por eso es bueno ir temprano. A tu madre no le importaban estas cosas. Recuerdo el dolor de piés y el calor que hacía. Ni las bermudas, ni las avarcas, ni la sombra de la calle eran capaces de retenerme un solo minuto más; así que grité algo como "¡Marcho!" pero no me fui. 
 
-Al fondo del pasillo tras el umbral de la entrada alguien alzó la mano. Entre el gentío había una chica preciosa y sonriente. Quizás se hizo un silencio breve en mi cabeza, sólo sé que pude oírla con perfecta claridad; "¡Billyyy!" decía. Melena a lo garçón y piel morena. Tenía un caminar decidido, desgarbado; o todo el mundo se apartaba, yo que sé; pero venía hacia nosotros y me quedé sin aire. Durante todo un segundo estuve, con la boca abierta, congelado.
+Al fondo del pasillo tras el umbral de la entrada alguien alzó la mano. Entre el gentío había una chica preciosa y sonriente. Quizás se hizo un silencio breve en mi cabeza, sólo sé que pude oírla con perfecta claridad; "¡Billyyy!" decía. Melena a lo *garçón* y piel morena. Tenía un caminar decidido, desgarbado; o todo el mundo se apartaba, yo que sé; pero venía hacia nosotros y me quedé sin aire. Durante todo un segundo estuve, con la boca abierta, congelado.
 
 [...] 
 
