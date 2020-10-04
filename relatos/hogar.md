@@ -8,4 +8,4 @@ Casi no hace frio. Todavía en penumbra han entrado en silencio una madre y su n
 
 Ella ha terminado de preparar el misal sobre la mesa y, tras alumbrar el cirio, se sienta despacio en una de las esquinas. Sujeta, como por instinto, una mano con la otra, aguantando un golpe de dolor. 
 
-"Buenas tardes" dice; casi sin ser oída. 
+"Boa tarde" dice. Nadie la oye. 
