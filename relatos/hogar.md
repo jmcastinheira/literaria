@@ -4,7 +4,7 @@ Encendida, la mecha, se refleja en la pila de piedra como si fuera un charco. Lo
 
 Casi no hace frio. Todavía en penumbra han entrado en silencio una madre y su niña, un anciano y tres mujeres. En el umbral de la puerta perciben apenas el aroma dulce de la cera virgen.
 
-Ella se ha parado un momento, aquí, entre las sombras. Tras retirar la cajita la va descubriendo con torpeza y estalla la luz del mixto con un chasquido. Al poco enciende algunas velas espigadas y este amarillo pálido y tembloroso va tiñendo, lentamente, la piedra gastada de la ermita. 
+Ella se ha parado un momento, aquí, entre las sombras. Tras retirar la cajita, la descubre despacio y estalla la luz del mixto con un chasquido. Al poco enciende algunas velas espigadas y este amarillo pálido y tembloroso va tiñendo, lentamente, la piedra gastada de la ermita. 
 
 Alrededor del altar se van sentando los feligreses tímidos. Sus rostros saludan, todavía pacientes, iluminados por el inestable carmín flotante del fuego.
 
