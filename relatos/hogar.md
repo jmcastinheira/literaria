@@ -6,6 +6,6 @@ Casi no hace frio. Todavía en penumbra han entrado en silencio una madre y su n
 
 Ella se ha parado un momento, aquí, entre las sombras. Tras retirar la cajita, la descubre despacio y estalla la luz del mixto con un chasquido. Al poco, enciende algunas velas espigadas y este amarillo pálido y tembloroso va tiñendo, lentamente, la gastada piedra de la ermita. 
 
-Alrededor del altar se van sentando los feligreses tímidos. Sus rostros saludan, todavía pacientes, iluminados por el inestable carmín flotante del fuego.
+Alrededor del altar se van sentando los feligreses tímidos. Sus rostros saludan, todavía pacientes, iluminados por el carmín flotante del fuego.
 
-Tras preparar el misal sobre la mesa y prender el cirio, la antigua maestra del pueblo se asienta renqueante en una esquina. "Boa tarde", dice. Como por instinto, una de sus manos recogió a la otra aguantando un golpe de dolor.
+Tras preparar el misal sobre la mesa y prender el cirio, la antigua maestra del pueblo se asienta renqueante en una esquina. "Boa tarde", dice. Como por instinto, una de sus manos recoge a la otra aguantando un golpe de dolor.
