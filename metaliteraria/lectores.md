@@ -1,0 +1,10 @@
+# Lectores.
+
+En principio es obvio que todo escritor tiene en cuenta al lector en mayor o menor medida. El mero hecho de escribir cumpliendo las normas del lenguaje, y en un idioma determinado supone ser consciente de los lectores potenciales y de aquellos que no lo serán probablemente.
+
+Pero más allá de estas obviedades, cabe preguntarse hasta qué punto somos conscientes o tenemos en mente al lector potencial cuando escribimos. 
+
+Cuando escribo poesía tengo muy presente a los lectores con los que quiero hablar,  en muchos casos son personas concretas. Eso tiene sus consecuencias en la poética, y es que, más allá de algunas cuestiones de estilo, me posiciono del lado de los que ven en la poesía un instrumento de comunicación, diría que un instrumento para *mostrar* el mundo, para señalar algo. Hay algunos riesgos evidentes en esto,  como caer en una conversación meramente anécdotica. Creo que la poesía debe traslucir, aunque sea entre las rendijas de la anécdota la universidad y eternidad de lo sagrado. Por eso la técnica tendrá algo que decirnos, pero nunca será suficiente.
+
+Cuando escribo relato, al menos de momento, pienso más en construir un mundo que en mostrarlo. Las verdad es que opino que aquí hay algo más de arquitectura; por supuesto, como en toda arquitectura, es preciso tener en cuenta a quienes serán destinatarios de esta, y en este sentido considero importante conocer los ritmos del relato, las tensiones y distensiones. Pero en realidad lo que me preocupa ahora es montar algo que se sostenga, quizás esto cambie con el tiempo. De momento me conformo con contar con el lector, jugar con él a mostrarle y ocultarle información e intentar sorprenderle.  Sospecho que uno es el primer lector de su obra, y esto tiene sus ventajas porque el hecho de ir descubriendo el mundo que va naciendo en el texto, y que apenas estaba dibujado en las mente del autor, es mucho más entretenido. En resumen, opino que en el mundo del relato la intimidad con el lector se me hace más difícil, y lo veo como alguien ignoto y extraño.
+
