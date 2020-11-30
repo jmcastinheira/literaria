@@ -28,6 +28,6 @@ Mariquilla le observa desconfiada. Su pequeña nariz se ha arrugado un poco; tie
 -Ya eres muy mayor.  
 -¡Si! [...] ¿Nos vamos?
 
-Luis hizo ademán de preguntar alguna cosa pero se quedó callado. En lugar de eso la mira con tristeza y se retira. Elena ha dejado de ver a nadie, por un momento, y ha estado pensando alguna cosa antes de marcharse.
+Luis hizo ademán de preguntar alguna cosa pero se quedó callado. En lugar de eso la mira con tristeza y se retira. Elena ha dejado de ver a nadie, por un momento, y ha estado pensando antes de marcharse.
 
 Al irse avanzan alejándose, sin dejar de verse; sus ojos atraviesan sus ojos resignados, otra vez, a despedirse.
