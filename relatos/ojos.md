@@ -1,14 +1,18 @@
 # Miradas.
 
-Esperaba despistada en el atrio; avanzaba arrastrando sobre la arena unos blancos zapatos remendados. En el empeine, todavía el lazo de organza que les puso Madre el día de la boda. Observaba, sin detalle, las figuritas talladas en la piedra. De esta mano herida Mariquilla tiró con fuerzas para arrancar un paso y otro paso. 
+Te espero impaciente en el atrio; avanzo arrastrando sobre la arena unos blancos zapatos remendados. En el empeine, todavía el lazo de organza que les puso mi madre el día de la boda. Observo, sin detalle, las figuritas talladas en la piedra. De mi mano herida Mariquilla tira con fuerzas para arrancarme un paso y otro paso. 
 
-Despacio y de domingo, un hombre sale de la iglesia. Nos miramos rápido, sin querer, como alguien que entra en un estanco vacío o en el bar de siempre. Pero algo pasa y todo se detiene un momento. 
+Despacio y de domingo, un hombre sale de la iglesia. Nos miramos rápido, sin querer, como alguien que entra en un estanco vacío o en el bar de siempre. Pero algo pasa y todo se vuelve calma porque al fin apareces. 
 
-Todavía no me has reconocido ¿Cuánto tiempo ha pasado? Había avanzado junio cuando empezaste a trabajar en la dorna de Maside ¿Recuerdas? Ellos pescaban sardina *a xeito* buscando entre las luminarias azules del mar de la noche. Maside, el viejo amigo de tus padres, seguro que te acuerdas; él tenía tres hijas y dos chicos. Quizás Elena, la más joven, se te haga presente ahora.
+Todavía no me has reconocido ¿Cuánto tiempo ha pasado? Hace años. Había avanzado junio cuando empezaste a trabajar en la dorna de Maside ¿Recuerdas? Ellos pescaban sardina *a xeito* buscando entre las luminarias azules del mar de la noche. Maside, el viejo amigo de tus padres; seguro que te acuerdas. Tenía tres hijas y dos chicos; piensa en Elena, la más joven, aquella que fui en otro tiempo.
 
-Decías que tenía un carisma envolvente; la capacidad improbable de convertir, sin querer, un ambiente pálido en uno luminoso. Por eso no la has reconocido todavía; sus ojos profundos tienen ahora la oscuridad misteriosa de un pozo antiguo, pero deberías dudarlo.
+Te conozco bien. La muerte Papá nos había cogido a todos por sorpresa; el mar tiene estas cosas. Era un hombre afable, sé que también lo querías. Era un poco bruto ¿Verdad? Tú lo sabes. Pero la gente de la aldea lo adoraba.
 
-Te conozco bien. La muerte Papá nos había cogido a todos por sorpresa; el mar tiene estas cosas ¿Verdad? Era un hombre afable; algo bruto, es verdad, pero muy querido por la gente de la aldea.
+Llevas un sombrero en la mano y vas elegante. Me alegro de verte guapo ¿Eres feliz? De Elena decías que tenía un carisma envolvente; esa capacidad improbable de convertir, sin querer, un ambiente pálido en uno luminoso. Por eso no me has reconocido todavía; mis ojos profundos tienen ahora la oscuridad misteriosa de un pozo antiguo, pero no deberías tardar tanto en reconocerme. Por fin me miras.
+
+Te pondrás nervioso ---¿Es ella?--- Pensarás. Sé que intentarás disimular para ganar tiempo. Sí, soy yo ¡Recuérdame! 
+
+Ahí está. Elena. Estará esperando a Juan seguramente. Ojalá no te hubiera visto ¿Pero cómo no verte? Parece triste. 
 
 Fue todo tan rápido. Te acercaste inapropiadamente en la iglesia, sé que no lo hiciste con mala intención. 
 
