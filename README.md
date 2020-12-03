@@ -3,7 +3,7 @@
 ### Temas de literatura
 
 Este es un pequeño repositorio de notas y relatos cortos de José Castiñeira, casi todos ellos han sido elaborados (y corregidos) en el marco del taller de escritura creativa de la editorial [Apiario](
-http://apiario.eu/) impartido por [Dores Tembrás](https://gl.m.wikipedia.org/wiki/Dores_Tembr%C3%A1s).
+http://apiario.eu/) impartido por [Dores Tembrás](https://gl.m.wikipedia.org/wiki/Dores_Tembr%C3%A1s). Para más información sobre mí, puedes consultar el blog [entelequia.info](https://entelequia.info)
 
 Además se incluye el libro de poesía ["Alguna vez"](https://www.bibliotecavirtualaceb.org/alguna-vez/#) editado por la [Asociación cultural ACEB](https://www.bibliotecavirtualaceb.org), y revisado por el poeta mallorquin [Antonio Rigo](https://www.google.com/search?client=firefox-b-m&q=Antonio+Rigo&stick=H4sIAAAAAAAAAONgVuLRT9c3NDQxyKgyyUkHAHTEPikQAAAA&sa=X&ved=2ahUKEwjWqt7_pNLrAhXBA2MBHTM9B2QQ6RMwC3oECAIQAwesta). Esta obra ha sido cedida al dominio público. 
 
