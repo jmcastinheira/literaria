@@ -4,7 +4,7 @@
 
 *Acompáñenme a un viaje hasta las primeras poblaciones de Japón ¿Cómo vivieron hace 10.000 años? ¿Pensaban diferente sobre la vida [...]*
 
-Tienes el rostro limpio y la mirada traviesa. Llevas ese pantaloncito corto, la camiseta de sisa ancha de tu hermana y unos calcetines rosas con dedos. Estás tumbada en el sofá. Ahora juegas con tus piernas por el aire y alzas la mano, luego la dejarás caer en el hombro de este joven. Al fondo se acerca el gato. 
+Tienes el rostro limpio y la mirada traviesa. Llevas ese pantaloncito corto, la camiseta de sisa ancha de tu hermana y unos calcetines rosas con dedos. Estás tumbada en el sofá. Ahora juegas con tus piernas por el aire y alzas la mano, luego la dejarás caer en el hombro de este joven. Al fondo se acerca un gato. 
 
 --Matthew tío ¿No lo puedes poner a 2x?  
 --¿Qué dices?  
