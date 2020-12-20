@@ -32,4 +32,13 @@ Además de todo esto, la narración de Gainza tiene una meditación sobre lo que
 
 ## Los pitucones.
 
+Probablemente, este no es el capítulo que más me gustó del libro. Pero me pareció interesante la vida de El Greco, y algunas de las cuestiones de las que trata. 
+
+Por un lado es interesante la capacidad de Gainza de hacer excursos, parece que te habla de otra cosa pero luego vuelve al tema central. Y también es interesante su capacidad de hacer alegorías, hablándonos de temas más generales a través de anécdotas concretas. 
+
+En este capítulo, creo que nos habla de la relación individuo-comunidad. La visión que la comunidad tiene de uno y de sus capacidades, el lugar que uno ocupa, en que se supone que debe ocupar, y el que quiere ocupar. Las presiones por desarrollar ese espacio y hacer lo que se supone que uno debe hacer, no desperdiciar el talento ni la vida. Hay veces que ese lugar ya está ocupado,  y entonces es preciso hacerse uno nuevo. Realmente creo que a diferencia de algunos otros de los personajes de los que se habla en este capítulo, El Greco pudo encontrar un espacio.
+
+
+
+
 
