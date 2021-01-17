@@ -18,19 +18,21 @@ Sobra decir que es una novela excepcional, lo cierto es que el hecho de haberla 
 
 ## Análisis de ambientes en "Nada" (capítulos I y II).
 
-La construcción del ambiente se realiza desde el contraste entre lo esperado/añorado por un lado, y la dura realidad con la que se encuentra Andrea en la calle de Aribau por otro. Y este contraste se revela tanto en las descripciones de los lugares, en los personajes y en la sensación de libertad o ausencia de ella.
+La construcción del ambiente en los dos primeros capítulos de la novela se realiza por contraste. Se manifiesta en un primer momento lo esperado y añorado, que ser pondrá en oposición con la dura realidad con la que se encuentra Andrea en la calle de Aribau. Este contraste se revela tanto en las descripciones de los lugares, en los personajes y en la sensación de libertad o ausencia de ella. La oposición no es simétrica sino que se impone un ambiente oscuro y decadente como tono general de la novela, pero este tono general se reafirma con algunas descripciones más luminosas, que reflejan el espíritu más inocente y libre de Andrea.
 
 ### Lugares:
 
 Hay dos momentos diferentes en el primer capítulo de la novela. En un primer momento en la descripción de Andrea nos encontramos adjetivos como "agradable", "excitante", sensaciones de "profunda libertad", etc. Describe a Barcelona como una "ciudad grande, adorada en mis ensueños por desconocida." Con un "aire marino, pesado y fresco".
 
-Pero en un segundo momento Andrea empieza a notar una sensación incómoda de extrañeza que irá acrecentádose al avanzar el relato:
+Pero en un segundo momento, al llegar al piso de sus familiares, Andrea empieza a notar una sensación incómoda de extrañeza que irá acrecentádose al avanzar el relato:
 
 > *Todo empezaba a ser **extraño** a mi imaginación; los estrechos y **desgastados** escalones de mosaico, iluminados por la luz eléctrica, no tenían cabida en mi recuerdo.*
 
-Y de repente *"Luego me pareció todo una pesadilla."* En esta frase se anticipa, como promesa, todas las penurias que va a tener que sufrir Andrea, por eso es un hito muy importante en la novela. Después la descripción de la casa sigue en una cascada de desastres:
+Poco a poco el ambiente irá volviéndose más y más desagradable hasta el punto que nos anuncia: *"Luego me pareció todo una pesadilla."* En esta frase se anticipa, como promesa, todas las penurias que va a tener que sufrir Andrea, por eso es un hito importante. 
 
-> *El recibidor alumbrado por la única y débil bombilla que quedaba sujeta a uno de los brazos de la lámpara, magnífica y **sucia** de telarañas, que colgaba del techo. Un fondo oscuro de muebles colocados unos sobre otros como en las mudanzas.*
+Lo anterior irá seguido de la descripción de la casa con una cascada de desastres:
+
+> *El recibidor alumbrado por la única y **débil** bombilla que quedaba sujeta a uno de los brazos de la lámpara, magnífica y **sucia** de telarañas, que colgaba del techo. Un fondo oscuro de muebles colocados unos sobre otros como en las mudanzas.*
 
 Poco a poco la descripción se vuelve más oscura, creando un ambiente mucho más pesado:
 
@@ -48,40 +50,40 @@ Y cuando por fin puede acudir a su cuatro lo describe como:
 
 > *En el centro, como un **túmulo funerario** rodeado por dolientes seres ---aquella doble fila de sillones **destripados**---, una cama turca, cubierta por una manta negra, donde yo debía dormir.*
 
-Y continuando con ese mismo campo semántico funerario:
+Continuando con ese mismo campo semántico funerario:
 
 > *Tenía miedo de meterme en aquella cama parecida a un ataúd.*
 
-Después de este viaje en cascada a los infiernos, el capítulo segundo comienza con una relajación del ambiente, recuperando las ilusiones iniciales, buscando la luminosidad pérdida, esta estructura se repetirá a lo largo de la novela.
+Después de este viaje en cascada a los infiernos, el capítulo segundo comienza con una relajación del ambiente, recuperando las ilusiones iniciales, buscando la luminosidad pérdida. Como decimos, esta estructura se repetirá a lo largo de la novela, los capítulos suelen iniciarse con destellos luminosos y luego el ambiente se oscurece rápidamente.
 
 > *Inmediatamente tuve una percepción nebulosa, **vivida y fresca** como si me la trajera el olor de una **fruta recién cogida,** de lo que era Barcelona en mi recuerdo: este ruido de los primeros tranvías. [...] la brisa traía olor a las ramas de los plátanos, verdes y polvorientos, bajo el balcón abierto. [...] Sin abrir los ojos sentí otra vez una oleada **venturosa y cálida.** [...] Me parecía haber soñado cosas malas, pero ahora descansaba en esta **alegría.***
 
+Pero siempre nos encuentra el ambiente decadente:
+
+> *Al abrir la puerta de mi cuarto me encontré en el sombrío y cargado recibidor [...] Tropecé, en mi camino hacia allí, con un hueso, pelado seguramente por el perro.*
+
 ### Personajes: 
 
-Toda esta descripción de espacios viene acompañada de una retahíla de personajes bastante lúgubres, que llega a definir como figuras "alargadas y sombrías [...] quietas y tristes, como luces de un velatorio de pueblo."
+Toda esta descripción de espacios viene acompañada de una retahíla de personajes bastante lúgubres, que llega a definir como figuras "alargadas y sombrías [...] quietas y tristes, como luces de un velatorio de pueblo." Lo que es coherente con él uso del campo semántico funerario, que ya se había utilizado.
 
-La estructura es similar respecto a los lugares, se parte de la descripción desagradable de estos.
+La estructura por contraste asimétrico será similar a lo que hemos dicho respecto a los lugares. En este caso ya se parte de una descripción desagradable de estos.
 
 Su abuela se le presenta como una "viejecita **decrépita**" y su tío Juan con "la cara llena de concavidades, **como una calavera** a la luz de la única bombilla de la lámpara." Antonia, la criada, respecto de quien todo le "parecía horrible y desastrado". Llega a decir que "nunca otra criatura me ha producido impresión más desagradable".
 
-La primera impresión con Angustias no es tan desagradable pero tras las primera conversación con ella le produce rechazo 
+La primera impresión con Angustias no es tan desagradable pero tras las primera conversación con ella le produce rechazo que se manifiesta en varios gestos, por ejemplo:
 
-> --Dame un beso, Andrea ---me pedía ella en ese momento. Rocé su pelo con mis labios y corrí al comedor antes de que pudiera atraparme y besarme a su vez.
+> --Dame un beso, Andrea ---me pedía ella en ese momento. *Rocé su pelo con mis labios y corrí* al comedor antes de que pudiera atraparme y besarme a su vez.
 
-El contraste, en este caso se produce con la sensación que tuvo en esa Barcelona de cuando era pequeña:
+El contraste, en este caso se produce con el recuerdo de la sensación que tuvo en esa Barcelona cuando era pequeña:
 
 > *Cuando yo era la única nieta pasé allí las temporadas más excitantes de mi vida infantil.
 [...] Todos los tíos me compraban golosinas y me premiaban las picardías.*
 
-Tiene la esperanza de que todo haya sido una pesadilla: "la habitación había perdido su horror, pero no su desarreglo espantoso, su absoluto abandono." Esa esperanza llega incluso a un punto de crudeza, en el momento en el que Andrea contempla el retrato de sus abuelos, pero no es un sueño, es real:
+Tiene la esperanza de que todo haya sido una pesadilla: "Me parecía haber soñado cosas malas". Esa esperanza llega incluso a un punto de crudeza, en el momento en el que Andrea contempla el retrato de sus abuelos, pero no es un sueño, es real:
 
 > *Me complací en pensar en que los dos estaban muertos hacía años. Me complací en pensar que nada tenía que ver la joven del velo de tul con la pequeña momia irreconocible que me había abierto la puerta. La verdad era, sin embargo, que ella vivía, aunque fuera lamentable, entre la cargazón de trastos inútiles que con el tiempo se habían ido acumulando en su casa.*
 
-Por si nos hemos olvidado nos recuerda la sensación:
-
-> *Al abrir la puerta de mi cuarto me encontré en el sombrío y cargado recibidor [...] Tropecé, en mi camino hacia allí, con un hueso, pelado seguramente por el perro.*
-
-Y luego están las relaciones entre los personajes,  todas estas relaciones empiezan a manifestarse en el capítulo II, en la conversación con Angustias:
+Los personajes no se describen de modo estático sino en su interacción con otros, por eso las relaciones entre los personajes son importantes,  empiezan a manifestarse en el capítulo II, en la conversación con Angustias:
 
 > *Tu tío Juan se ha casado con una mujer nada conveniente. Una mujer que está estropeando su vida... Andrea; si yo algún día supiera que tú eras amiga de ella, cuenta con que me darías un gran disgusto, con que yo me quedaría muy apenada...*
 
@@ -95,9 +97,11 @@ Y después:
 
 >Juan cogió el plato de papilla del pequeño y se lo tiró a la cabeza.
 
+La figura de Juan irá siempre acompañada de un ambiente violento.
+
 ### La libertad:
 
-En este caso el contraste se da en lo que Andrea espera encontrar al irse a Barcelona y la vigilancia constante de Angustias y del resto de personajes que rodean al la protagonista. En concreto, las primera conversación con Angustias es para advertirle que:
+En este caso el contraste se da en lo que Andrea espera encontrar al irse a Barcelona como estudiante y la vigilancia constante de Angustias y del resto de personajes que rodean al la protagonista. En concreto, la primera conversación con Angustias es para advertirle:
 
 > Por lo tanto, quiero decirte que no te dejaré dar un paso sin mi permiso. ¿Entiendes ahora?
 
