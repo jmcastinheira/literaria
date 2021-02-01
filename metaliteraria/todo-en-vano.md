@@ -23,23 +23,25 @@ Aquí se mezclan también otras de las funciones de Propp, las cuatro siguientes
 - **Interrogatorio:** La policía alemana y Drygalsky (como antagonistas) acuden a Georgenhof e interrogan a Katharina. (Capítulo: "Policía" pág. 241 y ss.).
 - **Daño injusto a un miembro de la familia:** Uno de los miembros de la familia se ve perjudicado injustamente. En este caso se produce la detención injusta de Katharina por dar habitación a un judío. (Capítulo: "La policía" pág. 241 y ss.)
 - **Divulgación de la fechoría o injusticia. Y Decisión del héroe:** En las estructuras de Propp el héroe sale a defender a la víctima al tener noticias del perjuicio que se causa al familiar. En este caso provoca todo lo contrario, Peter y su tía abandonaran a Katharina con la esperanza de que la dejarán salir tarde o temprano. El hecho es que la relación causal entre el descubrimiento de la fechoría, la detención y la partida están claros. (Capítulo: "La policía" pág. 241 y ss.)
+
+A  partir de aquí comienza el camino del héroe, continúan alugnas de las funciones de Propp como la del engaño/privación de bienes (el caso de Vladimir):
+
 - **La partida:** Peter, que entendemos que es el protagonista, y la Tiíta emprenden la partida sin esperar a Katharina. (Capítulo: "La policía" pág. 241 y ss.)
 
+- **Prueba:** El héroe sufre una o varias pruebas que le preparan para la recepción de un objeto o de un auxiliar mágico. En este caso debemos entender que Péter es un antihéroe de hecho no supera el examen al que le somete el Pastor Schowalker, pues sospecha que puede pertenecer a las Juventudes Hitlerianas, y no le resulta de fiar (en parte por el comentario de la violinista) como resultado el Pastor no sólo no le da ningún objeto sino que le quita una cucharilla de plata "Se la he birlado, pensó el pastor. Le protegería como un talisman" (Capítulo: "En camino" pág. 314). Pero no importa que Peter no obtenga ningún objeto mágico porque ya los tiene, durate todo el tiempo protege de forma obsesiva y casi injustificable el micoscópico, como si en efecto fuera un objeto mágico, e igual sucede con el medallón de su madre.
 
+- **Viaje:** El héroe es conducido a otro lugar, cerca de donde se halla el objeto de su búsqueda. En este caso los tres hombres de las SS (Capítulo: "Solo" pág. 318 y ss.)
 
+Socorro. El héroe es auxiliado.
 
+- **Reparación del daño:** Si Peter fuera un héroe de Propp salvaría a su madre de la injusticia cometida por el antagonista (los nazis) pero Peter se está convirtiendo en el enemigo poco a poco, para mostrarnos esto el autor nos dice cosas de Peter realmente sorprendentes (...) en ningún momento piensa en su madre (Capítulo: "En camino" pág. 314)
 
-Prueba. El donante somete al héroe a una prueba que le prepara para la recepción de una ayuda mágica.
+Llegada de incógnito. El héroe llega de incógnito a su casa o a otra comarca, sin ser reconocido.
 
-Reacción del héroe. El héroe supera o falla la prueba.
-
-Regalo. El héroe recibe un objeto mágico.
-
-Viaje. El héroe es conducido a otro reino, donde se halla el objeto de su búsqueda.
+Fingimiento. Un falso héroe reivindica los logros que no le corresponden.
 
 Lucha. El héroe y el villano se enfrentan en combate directo.
 
-Marca. El héroe queda marcado.
 
 ## Presentación de los personajes
 
