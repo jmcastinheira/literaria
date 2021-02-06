@@ -1,19 +1,20 @@
 # Cosas de niños
 
-"¿Me habéis llamado?" Dijo el niño.
+---¿Me habéis llamado?--- Dijo la niña.
 
-Acostumbraba a deslizarse sigilosamente de una alfombra a la otra, para evitar el pinchazo repentino de aquellas baldosas congeladas. 
+Siempre que sucedía acostumbraba a deslizarse sigilosamente de una alfombra a la otra, para evitar el pinchazo repentino de aquellas baldosas congeladas, y la humedad trepando poco a poco por las espinillas.
 
-Se dirigía, en la penumbra, hacia los gritos histriónicos  de la televisión, que iluminaba el techo del salón con una luz débil y temblorosa.
+Se dirigía, en la penumbra, hacia la voz histriónica de la televisión que no le dejaba dormir. Una luz inestable iluminaba el techo extendiéndose eléctricamente como un fluido.
 
-Pisó un trocito de cristal. ---Las cosas con heridas tienen historias--- Decía su madre. Pero a él no le gustan las heridas, ni los gritos, ni los portazos, y ahora la tele está demasiado alta. No puede dormir. 
+Pisó un trocito de cristal. ---Las cosas con heridas tienen historia, Marta--- Decía su madre. A ella no le gustan las heridas, ni los gritos, ni los portazos, y ahora la tele está demasiado alta ---¡Siempre igual!
 
-La cabeza de su padre asoma ligeramente por el respaldo. "¿Me habéis llamado?" Vuelve a repetir, nadie le contesta. Respiración profunda.
+---¿Me habéis llamado?--- Vuelve a repetir; nadie le contesta. Siente la respiración profunda de su padre dormido en el salón y, casi sin querer, se queda congelada en los silencios. 
 
-El último pasillo lo recorre de puntillas, como si se hubiera caído una caja de chinchetas. Procura no hacer ruido. 
-
+El último pasillo lo recorre de puntillas --¡Que frío!--- como si se hubiera caído por el suelo una caja de chinchetas. Procura no hacer ruido mientras busca, a tientas, el mando del aparato.
 
 - Mami, *voy a bajar un poquitito la voz*
-- Vale, hijo... ¿Me das un beso?
--  ¿Lloras?
-- ¡Claro...! Porque me alegro de verte.
+- Vale, hija... ¿Me das un beso?
+- [... ] ¿Estás llorando?
+- ¡Claro! 
+- ¿Por qué? 
+- Mi vida... pues porque me gusta mucho verte.
