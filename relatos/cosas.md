@@ -17,4 +17,4 @@ El último pasillo lo recorre de puntillas --¡Que frío!--- como si se hubiera 
 - [... ] ¿Estás llorando?
 - ¡Claro! 
 - ¿Por qué? 
-- Mi vida... pues porque me gusta verte.
+- Mi vida... porque me gusta verte.
