@@ -1,8 +1,41 @@
 # Urushi 
 
+## Color.
+
+Hace tiempo que no veíamos a la abuela Uzumi, es tan guapa. 
+
+Vinimos a Miyoshi porque murió el abuelo. Mamá dijo: "Tenemos que ayudar a la abuela ¿Vale Marta?" Siempre dice: "¿Vale Marta?" Ni que fuera tonta: "Le das de comer a Nerea ¿me oyes?", "¿me oyes?"; con ese tonito. "No vayáis al estudio del abuelo"; dijo el año pasado; *ñiñiñi,* era la primera vez que veníamos a Miyoshi ¿Cómo íbamos a ir? ¡Si no sabíamos llegar! Pero al final llegamos, llegamos sin querer y vimos al abuelo. 
+
+- Nerea, anda, termina el arroz. 
+
+Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. Con una mano sujeta el bol brillante del abuelo, con la otra se llena las manitas de arroz. Algunos granos se quedan pegaditos a los dedos; son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena; no seas cochiña; venga, termina. 
+
+- Pero yo quiero pintar...
+
+El bol del abuelo es negro por fuera. Se limpia con agua caliente y una gotita de jabón. Un poquito así... Luego hay que secarlo bien: "Sécalo muy bien, pequeña" decía el abuelo. Por dentro es rojo como una manzana.
+
+- ¿Me pintas una manaza, Nerea?
+- ¡Siii!
+
+Nadie sabía que nos fugamos, le vimos junto al árbol del estudio. Los viejos nos hacían reverencias desde el choche; Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. 
+
+Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Vuestra abuela Uzumi me regaló esto por nuestra boda ¿Os gusta?" "¡Es rojísimo!" Dijo Nerea, y el abuelo se lo regaló.
+
+- Martaaa.
+- ¿Quée?
+- La manzana no me queda igual.
+- Nerea, no seas tonta; nadie puede pintar una manzana. Sólo la abuela.
+
+Mamá no sabe que tenemos escondido el bol del abuelo, *chisss*. Hay que acariciarlo suave con los dedos y así se queda brillante. La abuela lo hizo con sangre de un árbol y polvitos de hierro. Lo tenemos guardado aquí en Miyoshi. 
+
+El árbol del urushi tiene muchas cicatrices, a Nerea le da pena. ---Pobrecito árbol--- dice. Se pasa un montón allí, con las manitas abrazadas. Mamá dice que hay que volver al cole. A mi me gusta el cole de Foz, pero Nerea se pone triste. 
+
+Cuando llegue a Foz le diré un secreto a la profe Eulalia. Una manzana es así, como la sangre.
+
+
 ## Tacto. 
 
-Marta, nenita, acércate. Nunca estarás sóla. 
+Nerea, nenita, acércate.  ¿Estás contenta de haber vuelto?
 
 Recuerdo los años que estuve en el taller ¿Me das la mano? Yo no era tan guapa como tú, mi niña; que piel tan bonita tienes. 
 
@@ -27,36 +60,6 @@ Le gustaban mis manos ¿Sabes? Se quedaba embobado, decía que eran de artista. 
 Tengo miedo de volver a estar sola. Como antes. Se han perdido todas las cosas. Los besos y los "buenos días" ¿Recuerdas cómo nos cantaba? Tengo miedo a olvidarme. Ya soy viejita.
 
 ¿Pero qué me traes, Marta? Ay. Me vas a hacer llorar. 
-
-## Color.
-
-Hace tiempo que no veíamos a la abuela Uzumi, es tan guapa. 
-
-Vinimos a Miyoshi porque murió el abuelo. Mamá dijo: "Tenemos que ayudar a la abuela ¿Vale Marta?" Siempre dice: "¿Vale Marta?" Ni que fuera tonta: "Le das de comer a Nerea ¿me oyes?", "¿me oyes?"; con ese tonito. "No vayáis al estudio del abuelo"; dijo el año pasado; *ñiñiñi,* era la primera vez que veníamos a Miyoshi ¿Cómo íbamos a ir? ¡Si no sabíamos llegar! Pero al final llegamos, llegamos sin querer y vimos al abuelo. 
-
-- Nerea, anda, termina el arroz. 
-
-Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. Con una mano sujeta el bol brillante del abuelo, con la otra se llena las manitas de arroz. Algunos granos se quedan pegaditos a los dedos; son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena; no seas cochiña; venga, termina. 
-
-- Pero yo quiero pintar...
-
-El bol del abuelo es negro por fuera. Se limpia con agua caliente y una gotita de jabón. Un poquito así... Luego hay que secarlo bien: "Sécalo muy bien, pequeña" decía el abuelo. Por dentro es rojo como una manzana.
-
-- ¿Me pintas una manaza, Nerea?
-- ¡Siii!
-
-Nadie sabía que nos fugamos, le vimos junto al árbol del estudio. Los viejos nos hacían reverencias desde el choche; Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. 
-
-Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Vuestra abuela Uzumi me regaló esto por la boda". "¡Es rojísimo!" Dijo Nerea.
-
-- Martaaa.
-- ¿Quée?
-- La manzana no me queda igual.
-- Nerea, no seas tonta; nadie puede pintar una manzana. Sólo la abuela.
-
-Mamá no sabe que tenemos escondido el bol del abuelo, *chisss*. Hay que acariciarlo suave con los dedos y así se queda brillante. La abuela lo hizo con sangre del árbol y polvo de hierro. "Pobre árbol, por eso tiene tantas cicatrices." Dijo Nerea.
-
-¿Me guardáis un secreto? Una manzana es así, como la sangre.
 
 ## Historia.
 
