@@ -8,7 +8,7 @@ Vinimos a Miyoshi porque murió el abuelo. Mamá dijo: "Tenemos que ayudar a la 
 
 - Nerea, anda, termina el arroz. 
 
-Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. Con una mano sujeta el bol brillante del abuelo, con la otra se llena las manitas de arroz. Algunos granos se quedan pegaditos a los dedos; son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena; no seas cochiña; venga, termina. 
+Me gusta beber agua del bol del abuelo, parece de sangre. Nerea come con las manos. Con una mano sujeta el bol brillante del abuelo; con la otra se llena las manitas de arroz. Algunos granos se quedan pegaditos a los dedos, son tan pequeños. Blancos y pequeñitos le caben todos en la boca ¡Que bruta! Labios llenos de granitos de arroz. Toda la cara. Ay, nena, no seas cochiña. Venga, termina. 
 
 - Pero yo quiero pintar...
 
@@ -19,39 +19,51 @@ El bol del abuelo es negro por fuera. Se limpia con agua caliente y una gotita d
 
 Nadie sabía que nos fugamos, le vimos junto al árbol del estudio. Los viejos nos hacían reverencias desde el choche; Nerea saludaba también, moviendo la cabeza para abajo. "¡Tonta, para ya!" Por el camino del río encontramos ranitas muy muy muy pequeñas; era guay. Nerea dijo "¡Mira, el abuelo!" y era. "¿Marta, de qúe color es una manzana?" me preguntó el abuelo. "¡Roja!" le dije. Pero no es roja, no; no es un rojo normal. 
 
-Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Vuestra abuela Uzumi me regaló esto por nuestra boda ¿Os gusta?" "¡Es rojísimo!" Dijo Nerea, y el abuelo se lo regaló.
+Los colores de las cosas vivas son distintos, laten un poco y brillan,  como si tuvieran corazón. El abuelo sacó el bol de la manga largísima de su kimono: "Vuestra abuela Uzumi me regaló este cuenquito de madera por nuestra boda ¿Os gusta?" "¡Es rojísimo!" Dijo Nerea, y el abuelo se lo regaló. Pero no parece de madera, la verdad... es madera como de plástico.
 
 - Martaaa.
 - ¿Quée?
 - La manzana no me queda igual.
 - Nerea, no seas tonta; nadie puede pintar una manzana. Sólo la abuela.
 
-Mamá no sabe que tenemos escondido el bol del abuelo, *chisss*. Hay que acariciarlo suave con los dedos y así se queda brillante. La abuela lo hizo con sangre de un árbol y polvitos de hierro. Lo tenemos guardado aquí en Miyoshi. 
+Mamá no sabe que tenemos escondido el bol del abuelo, *chisss*. Hay que acariciarlo suave con los dedos y así se queda brillante. La abuela dice que lo hizo con sangre de un árbol y polvitos de hierro. Lo tenemos guardado aquí en Miyoshi. 
 
-El árbol del urushi tiene muchas cicatrices, a Nerea le da pena. ---Pobrecito árbol--- dice. Se pasa un montón allí, con las manitas abrazadas. Mamá dice que hay que volver al cole. A mi me gusta el cole de Foz, pero Nerea se pone triste. 
+El árbol del urushi tiene muchas cicatrices, a Nerea le da pena. ---Pobrecito árbol--- dice. Se pasa un montón allí, con las manos abrazadas. Mamá dice que hay que volver al cole. A mi me gusta el cole de Foz, pero Nerea se pone triste. 
 
 Cuando llegue a Foz le diré un secreto a la profe Eulalia. Una manzana es así, como la sangre.
 
 
 ## Tacto. 
 
-Nerea, nenita, acércate.  ¿Estás contenta de haber vuelto?
+Ven, Nerea, acércate ¿Estás contenta de haber vuelto? Me alegro mucho de verte, ya casi no venís a visitarme ¡Oye! ¡Pero has crecido mucho! ¿Cuántos años tienes?
 
-Recuerdo los años que estuve en el taller ¿Me das la mano? Yo no era tan guapa como tú, mi niña; que piel tan bonita tienes. 
+Vamos a ponerte unas zapatillas. 
 
-Al principio me gustaba trabajar con la madera... Pero también fue triste ¿Tú te crees? Bambú de comer, arroz y sopa miso. Siempre igual. Sin ver a nadie ¡Sin tocar a nadie! Es tan importante abrazar y que te quieran ¿Me oyes?
+¿Me das la mano? Yo no era tan guapa como tú, mi niña, que dulce eres. Cuándo tenía tu edad Mamá me llevó de aprendíz al Sensei Ogawa. Mira que piel bonita; la mía se estropeó de tanto trabajar con la madera... Había que ganarse el pan. 	
 
-Todo lacado de Urushi tiene una suavidad amable; pero es difícil. Aplicas la resina y la dejas secar al menos una semana. Una y otra vez. Las cosas bien hechas llevan su tiempo y hay que respetarlo.
+Vamos a sentarnos fuera ¿No te gusta el jardín? Era de tu abuelo, me recuerda a él. Está verde todo; tan lindo. El sonido del agua suave siempre me relaja; paso mucho tiempo aquí. Por las mañanas escucho a los pajarillos; los gorriones, las tórtolas... ¿A que se está bien? Me gusta verte tan gordita y guapa, con esos mofletones de cerdita traviesa. Dame un beso. 
 
-A veces era agobiante. Sólo estaba el Sensei. Todo él con sus maderas y sus cosas. Menos mal que vino tu abuelo. 
+¿No te conté cuando me escapé del Sensei? Fueron muchos años allí. Aprendí lo que sé. Venía gente de todo Japón para hablar con El Maestro. No siempre los trataba bien, era un _Artista_, las reverencias de los alumnos besaban el suelo ¡Imagínate que señor tan importante! Pero hasta los monos caen de los árboles. Menos mal que ahora está muerto. Era la esclava de un Hombre Sabio. Todo para aprender. Yo solo quería aprender. 
 
-Alisabamos cada pieza con la piedra de pulir y el papel de lija; un grano más fino de cada vez. Al final con la yema de los dedos. Por eso es tan especial. La gente afirma sentir el polvo atrapado en la resina. No sé, a mí me dolían las manos.
+Mira, cógeme ese brote de bambú, luego lo preparamos ¡Tira, niña, tira! Muy bien. Esto es lo que comía yo, bambú, arroz y sopa miso. Siempre igual. Comíamos muy poquito. Mi madre dejó de visitarme porque le daba pena. Ven que te enseño lo que estoy haciendo ahora. 
 
-Y a veces sangraba.
+¿Ves toda esa viruta de madera? Yo tenía el taller del Sensei limpio como una patena; lavaba la ropa, hacía la comida, preparaba las cosas ¡Ni un día libre! Eso es ser 	*Uchi-deshi*; trabajas mucho, aprendes mucho, trabajas mucho. 
 
-Un día llené el bol de sangre. Seguí arrastrando los dedos, absorta en el tacto tibio. Como un abrazo latiendo, así; pum-pum, en la madera.
+Habría que limpiar aquí. Tú estás gordita; muy bien, muy bien. Mira que sucio está esto ¡Que desastre! ¿Quieres ser mi aprendíz? Ven, te voy a enseñar. Ponte a barrer y escucha; lo primero es saber tocar.
 
-Cuando el Sensei me pegó me lastimó mucho. Son cosas que hacen los maestros. Pero, no te preocupes, la vida te salva, a veces, de estas cosas. 
+¿Ves? 
+
+El lacado de Urushi es suave como la piel de los jóvenes; toca, toca. El Sensei tenía montañas y montañas de piezas a medio hacer, se tarda mucho en terminarlas. Por eso es difícil. Hay que dejar secar la resina una semana; y luego otra vez, y otra vez. Debe respetarse el tiempo de la sangre.
+
+Es muy importante abrazar y que te quieran ¿Me oyes? En el taller estábamos meses sin ver a nadie ¡Años sin tocar a nadie! Y viajar, mi niña, tienes que viajar ¿Pero sabes? Al final venía tu abuelo; nos veíamos a escondidas  en el *Kamidana* cuando se iba el día. Pero no nos tocábamos.
+
+Le das así con la piedra de pulir y el papel de lija; mira. Muy bien. Cada vez un grano más fino. Dale, dale ¡Más niña, más! Hasta que te canses. Cuando termines hay que repasarlo con los dedos. Tienes que sentir el polvo en la resina. Dale, dale. A mí me dolían las manos; pero ya sabes; el arte salva los cuerpos.
+
+Y a veces me sangraban.
+
+Un día llené el bol de sangre. Seguí arrastrando los dedos, absorta en el tacto. Como un abrazo latiendo, así; pum-pum, en la madera.
+
+Cuando el Sensei me pegó me lastimó mucho. Son cosas que hacen los maestros. Pero, no te preocupes, la vida te salva de estas cosas. 
 
 Pinté aquel bol de rojo por dentro y se lo regalé a tu abuelo. Era mi dote; poco más tenía yo. Lástima que se haya perdido. 
 
