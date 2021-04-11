@@ -1,5 +1,10 @@
 # Giovanni Salina
 
+> El único que se parecía a él, Giovanni,no estaba allí. Cada dos años le enviaba saludos desde Londres. Ya no tenía nada que ver conel carbón y comerciaba con brillantes. Después de muerta Stella, llegó dirigida a ella unabreve carta y luego un paquetito con un brazalete. Éste sí. También él había «cortejado a lamuerte», más bien con el abandono de todo había organizado para sí ese poco de muerte quees posible tener sin dejar de vivir. 
+>
+> **El Gatopardo**  
+>*Giuseppe Tomasi di Lampedusa*
+
 Giovanni se había enterado de la muerte del Príncipe mientras estaba comiendo. Sobre la mesa, un par de truchas asadas que había adquirido Mary en el mercado. Empezaba a entrar una luz rojiza y verde por las vidrieras, y se colaba traviesa en el salón rebotando con chispas sobre la cubertería. La última vez que había recibido una carta de su hermana había sido para comunicarle el fallecimiento de su madre. 
 
 Tal vez por esta razón Mary no le había advertido en cuanto la recogió del cartero. Por el contrario, había permitido que saliera a trabajar como si nada y que así volviera cansado como siempre; con sus pasos pesados, refunfuñando para sí cosas que ella nunca le entendía. Por alguna razón había calculado que las malas noticias se digieren mejor después de las comidas; pero la maldita misiva le pesaba tanto en el alma que no pudo esperar lo suficiente e hizo lo peor que podía hacer; entregársela justo al momento de sentarse a la mesa.
